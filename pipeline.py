@@ -4,8 +4,9 @@ Pipeline de traducción: Las Leyendas de los Judíos (Louis Ginzberg)
 Inglés → Español usando dos agentes Claude.
 
 Uso:
-  python pipeline.py                 # Pipeline completo
-  python pipeline.py --solo-parsear  # Solo muestra secciones detectadas (sin traducir)
+  python pipeline.py                      # Volumen 1, pipeline completo
+  python pipeline.py --vol 2              # Volumen 2
+  python pipeline.py --vol 2 --solo-parsear  # Solo muestra secciones del Vol. 2
 """
 
 import json
@@ -19,14 +20,26 @@ from pathlib import Path
 import anthropic
 import requests
 
+# ─── Volumen (se puede sobreescribir con --vol N) ─────────────────────────────
+
+# IDs de Project Gutenberg para cada volumen
+GUTENBERG_IDS = {1: 1493, 2: 1494, 3: 2881, 4: 2882}
+
+# Leer --vol del argumento de línea de comandos
+_vol_arg = 1
+for i, arg in enumerate(sys.argv):
+    if arg == "--vol" and i + 1 < len(sys.argv):
+        _vol_arg = int(sys.argv[i + 1])
+VOL = _vol_arg
+
 # ─── Configuración ────────────────────────────────────────────────────────────
 
 MODEL_TRADUCTOR = "claude-opus-4-6"
 MODEL_REVISOR = "claude-sonnet-4-6"
-CHECKPOINT_FILE = Path("checkpoint.json")
-OUTPUT_DIR = Path("output/vol1")
+CHECKPOINT_FILE = Path(f"checkpoint-vol{VOL}.json")
+OUTPUT_DIR = Path(f"output/vol{VOL}")
 FUENTES_DIR = Path("fuentes")
-VOL1_FILE = FUENTES_DIR / "vol1.txt"
+VOL_FILE = FUENTES_DIR / f"vol{VOL}.txt"
 PAUSA_ENTRE_LLAMADAS = 3  # segundos entre llamadas a la API
 
 # ─── System prompts ───────────────────────────────────────────────────────────
@@ -55,67 +68,47 @@ REVISOR_SYSTEM = (
 # ─── Descarga ─────────────────────────────────────────────────────────────────
 
 def buscar_url_gutenberg():
-    """Localiza el Volumen I de Ginzberg via Gutendex y devuelve la URL del .txt."""
-    print("Buscando en Gutendex...")
-    resp = requests.get(
-        "https://gutendex.com/books/",
-        params={"search": "Legends of the Jews Ginzberg"},
-        timeout=30,
-    )
-    resp.raise_for_status()
-    resultados = resp.json().get("results", [])
-
-    # Intentar encontrar específicamente el Vol. I
-    for libro in resultados:
-        titulo = libro.get("title", "").lower()
-        es_volumen_uno = any(
-            t in titulo for t in ["volume i", "vol. i", "vol i", "volume 1", "vol. 1"]
+    """Localiza el volumen actual de Ginzberg via Gutendex y devuelve la URL del .txt."""
+    gutenberg_id = GUTENBERG_IDS.get(VOL)
+    if gutenberg_id:
+        # Buscar directamente por ID
+        print(f"Buscando Vol. {VOL} en Gutendex (ID {gutenberg_id})...")
+        resp = requests.get(
+            f"https://gutendex.com/books/{gutenberg_id}",
+            timeout=30,
         )
-        if "legends of the jews" in titulo and es_volumen_uno:
-            formats = libro.get("formats", {})
-            url = (
-                formats.get("text/plain; charset=utf-8")
-                or formats.get("text/plain; charset=us-ascii")
-                or formats.get("text/plain")
-            )
-            if url:
-                print(f"  Encontrado: {libro['title']} (ID {libro['id']})")
-                return url
-
-    # Fallback: primer resultado con título "Legends of the Jews" y texto plano
-    for libro in resultados:
-        titulo = libro.get("title", "").lower()
-        if "legends of the jews" in titulo:
-            formats = libro.get("formats", {})
-            url = (
-                formats.get("text/plain; charset=utf-8")
-                or formats.get("text/plain; charset=us-ascii")
-                or formats.get("text/plain")
-            )
-            if url:
-                print(f"  Usando como fallback: {libro['title']} (ID {libro['id']})")
-                return url
+        resp.raise_for_status()
+        libro = resp.json()
+        formats = libro.get("formats", {})
+        url = (
+            formats.get("text/plain; charset=utf-8")
+            or formats.get("text/plain; charset=us-ascii")
+            or formats.get("text/plain")
+        )
+        if url:
+            print(f"  Encontrado: {libro['title']}")
+            return url
 
     raise ValueError(
-        "No se encontró el texto en Gutendex. "
-        "Descárgalo manualmente en https://www.gutenberg.org y guárdalo en fuentes/vol1.txt"
+        f"No se encontró el Vol. {VOL} en Gutendex. "
+        f"Descárgalo manualmente en https://www.gutenberg.org y guárdalo en fuentes/vol{VOL}.txt"
     )
 
 
-def descargar_vol1():
-    """Descarga el Vol. I si no existe ya en fuentes/."""
+def descargar_vol():
+    """Descarga el volumen actual si no existe ya en fuentes/."""
     FUENTES_DIR.mkdir(parents=True, exist_ok=True)
 
-    if VOL1_FILE.exists():
-        print(f"Texto ya descargado: {VOL1_FILE} ({VOL1_FILE.stat().st_size:,} bytes)")
+    if VOL_FILE.exists():
+        print(f"Texto ya descargado: {VOL_FILE} ({VOL_FILE.stat().st_size:,} bytes)")
         return
 
     url = buscar_url_gutenberg()
     print(f"Descargando desde {url} ...")
     resp = requests.get(url, timeout=120)
     resp.raise_for_status()
-    VOL1_FILE.write_bytes(resp.content)
-    print(f"Guardado en {VOL1_FILE} ({VOL1_FILE.stat().st_size:,} bytes)")
+    VOL_FILE.write_bytes(resp.content)
+    print(f"Guardado en {VOL_FILE} ({VOL_FILE.stat().st_size:,} bytes)")
 
 
 # ─── Parser ───────────────────────────────────────────────────────────────────
@@ -307,13 +300,13 @@ def git_commit_push(titulo, ruta_md):
 
 def cmd_solo_parsear():
     """Descarga el texto, detecta secciones y las muestra por pantalla."""
-    descargar_vol1()
-    texto = VOL1_FILE.read_text(encoding="utf-8", errors="replace")
+    descargar_vol()
+    texto = VOL_FILE.read_text(encoding="utf-8", errors="replace")
     secciones = parsear_secciones(texto)
 
     sep = "─" * 70
     print(f"\n{sep}")
-    print(f"  {len(secciones)} secciones detectadas en {VOL1_FILE}")
+    print(f"  {len(secciones)} secciones detectadas en {VOL_FILE}")
     print(f"{sep}\n")
     for i, s in enumerate(secciones, 1):
         palabras = len(s['cuerpo'].split())
@@ -331,12 +324,12 @@ def cmd_pipeline():
     client = anthropic.Anthropic(api_key=api_key)
 
     # 1. Descargar texto
-    descargar_vol1()
+    descargar_vol()
 
     # 2. Parsear secciones
-    texto = VOL1_FILE.read_text(encoding="utf-8", errors="replace")
+    texto = VOL_FILE.read_text(encoding="utf-8", errors="replace")
     secciones = parsear_secciones(texto)
-    print(f"\n{len(secciones)} secciones detectadas.\n")
+    print(f"\nVol. {VOL}: {len(secciones)} secciones detectadas.\n")
 
     # 3. Cargar checkpoint
     checkpoint = cargar_checkpoint()
