@@ -1,15 +1,15 @@
 # III. THE TEN GENERATIONS
 
-El Nacimiento de Caín
-El Fratricidio
-El Castigo de Caín
-Los Habitantes de las Siete Tierras
-Los Descendientes de Caín
-Los Descendientes de Adán y Lilith
-Set y sus Descendientes
+El nacimiento de Caín
+El fratricidio
+El castigo de Caín
+Los habitantes de las siete tierras
+Los descendientes de Caín
+Los descendientes de Adán y Lilit
+Set y sus descendientes
 Enós
-La Caída de los Ángeles
-Henoc, Soberano y Maestro
-La Ascensión de Henoc
-La Traslación de Henoc
-Matusalén
+La caída de los ángeles
+Enoc, gobernante y maestro
+La ascensión de Enoc
+La traslación de Enoc
+Matusalén.
