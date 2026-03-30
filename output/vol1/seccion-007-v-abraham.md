@@ -1,37 +1,37 @@
 # V. ABRAHAM
 
-Las Generaciones Malvadas
-El Nacimiento de Abraham
-El Niño Proclama a Dios
-La Primera Aparición Pública de Abraham
-El Predicador de la Fe Verdadera
-En el Horno de Fuego
-Abraham Emigra a Harán
-La Estrella en el Oriente
-El Verdadero Creyente
-El Iconoclasta
-Abraham en Canaán
-Su Estancia en Egipto
-El Primer Faraón
-La Guerra de los Reyes
-El Pacto de los Pedazos
-El Nacimiento de Ismael
-La Visita de los Ángeles
-Las Ciudades del Pecado
-Abraham Intercede por los Pecadores
-La Destrucción de las Ciudades Pecaminosas
-Entre los Filisteos
-El Nacimiento de Isaac
-Ismael es Expulsado
-Las Dos Esposas de Ismael
-El Pacto con Abimelec
-Satanás Acusa a Abraham
-El Viaje a Moriah
+Las generaciones perversas
+El nacimiento de Avraham
+El niño proclama a Dios
+La primera aparición pública de Avraham
+El predicador de la fe verdadera
+En el horno ardiente
+Avraham emigra a Jarán
+La estrella en el oriente
+El verdadero creyente
+El iconoclasta
+Avraham en Canaán
+Su estancia en Egipto
+El primer faraón
+La guerra de los reyes
+El pacto entre las piezas
+El nacimiento de Ishmael
+La visita de los ángeles
+Las ciudades del pecado
+Avraham intercede por los pecadores
+La destrucción de las ciudades pecadoras
+Entre los filisteos
+El nacimiento de Itzjak
+La expulsión de Ishmael
+Las dos esposas de Ishmael
+El pacto con Avimélek
+Satán acusa a Avraham
+El camino hacia Moriá
 La Akedá
-La Muerte y Sepultura de Sara
-La Misión de Eliezer
-El Cortejo de Rebeca
-Los Últimos Años de Abraham
-Un Heraldo de la Muerte
-Abraham Contempla la Tierra y el Cielo
-El Patrón de Hebrón
+La muerte y sepultura de Sará
+La misión de Eliézer
+El cortejo de Rivká
+Los últimos años de Avraham
+Un heraldo de la muerte
+Avraham contempla la tierra y el cielo
+El patrono de Hebrón.
