@@ -1,14 +1,14 @@
 # IV. NOAH
 
-El Nacimiento de Noé
-El Castigo de los Ángeles Caídos
-La Generación del Diluvio
+El nacimiento de Nóaj
+El castigo de los ángeles caídos
+La generación del Diluvio
 El Libro Sagrado
-Los Moradores del Arca
+Los moradores del Arca
 El Diluvio
-Noé Abandona el Arca
-La Maldición de la Embriaguez
-Los Descendientes de Noé se Dispersan
-La Depravación de la Humanidad
+Nóaj abandona el Arca
+La maldición de la embriaguez
+Los descendientes de Nóaj se dispersan por el mundo
+La depravación de la humanidad
 Nimrod
-La Torre de Babel
+La Torre de Babel.
