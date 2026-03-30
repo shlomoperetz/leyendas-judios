@@ -21,7 +21,8 @@ import requests
 
 # ─── Configuración ────────────────────────────────────────────────────────────
 
-MODEL = "claude-sonnet-4-0"
+MODEL_TRADUCTOR = "claude-opus-4-6"
+MODEL_REVISOR = "claude-sonnet-4-6"
 CHECKPOINT_FILE = Path("checkpoint.json")
 OUTPUT_DIR = Path("output/vol1")
 FUENTES_DIR = Path("fuentes")
@@ -228,7 +229,7 @@ def traducir_seccion(client, titulo, cuerpo):
         f'Devuelve SOLO el texto traducido, sin repetir el título ni añadir comentarios.'
     )
     with client.messages.stream(
-        model=MODEL,
+        model=MODEL_TRADUCTOR,
         max_tokens=8000,
         system=TRADUCTOR_SYSTEM,
         messages=[{"role": "user", "content": prompt}],
@@ -248,7 +249,7 @@ def revisar_traduccion(client, titulo, cuerpo_original, cuerpo_traducido):
         f'TRADUCCIÓN (español):\n{cuerpo_traducido}'
     )
     with client.messages.stream(
-        model=MODEL,
+        model=MODEL_REVISOR,
         max_tokens=8000,
         system=REVISOR_SYSTEM,
         messages=[{"role": "user", "content": prompt}],
