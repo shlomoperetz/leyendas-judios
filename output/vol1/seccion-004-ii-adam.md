@@ -1,19 +1,19 @@
 # II. ADAM
 
-El Hombre y el Mundo
-Los Ángeles y la Creación del Hombre
-La Creación de Adán
-El Alma del Hombre
-El Hombre Ideal
-La Caída de Satanás
-La Mujer
-Adán y Eva en el Paraíso
-La Caída del Hombre
-El Castigo
-El Sabbath en el Cielo
-El Arrepentimiento de Adán
-El Libro de Raziel
-La Enfermedad de Adán
-El Relato de Eva sobre la Caída
-La Muerte de Adán
-La Muerte de Eva
+El hombre y el mundo
+Los ángeles y la creación del hombre
+La creación de Adam
+El alma del hombre
+El hombre ideal
+La caída de Satán
+La mujer
+Adam y Javá en el Paraíso
+La caída del hombre
+El castigo
+Shabat en el cielo
+El arrepentimiento de Adam
+El libro de Raziel
+La enfermedad de Adam
+El relato de Javá sobre la caída
+La muerte de Adam
+La muerte de Javá.
