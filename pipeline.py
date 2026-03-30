@@ -209,6 +209,28 @@ def parsear_secciones(texto):
 
 # ─── Agentes ──────────────────────────────────────────────────────────────────
 
+def llamar_con_reintento(fn, max_intentos=6):
+    """
+    Ejecuta fn() reintentando ante errores de sobrecarga o rate limit.
+    Backoff exponencial: 30s, 60s, 120s, 240s, 480s.
+    """
+    for intento in range(max_intentos):
+        try:
+            return fn()
+        except anthropic.RateLimitError as e:
+            espera = int(getattr(e.response, 'headers', {}).get('retry-after', 60))
+            print(f"  Rate limit. Esperando {espera}s...")
+            time.sleep(espera)
+        except anthropic.APIStatusError as e:
+            if 'overloaded' in str(e).lower():
+                espera = 30 * (2 ** intento)
+                print(f"  API sobrecargada. Reintento {intento+1}/{max_intentos} en {espera}s...")
+                time.sleep(espera)
+            else:
+                raise
+    raise RuntimeError(f"Fallaron {max_intentos} intentos consecutivos.")
+
+
 def traducir_seccion(client, titulo, cuerpo):
     """
     Agente 1 — Traductor literario.
@@ -221,13 +243,15 @@ def traducir_seccion(client, titulo, cuerpo):
         f'TEXTO ORIGINAL:\n{cuerpo}\n\n'
         f'Devuelve SOLO el texto traducido, sin repetir el título ni añadir comentarios.'
     )
-    with client.messages.stream(
-        model=MODEL_TRADUCTOR,
-        max_tokens=8000,
-        system=TRADUCTOR_SYSTEM,
-        messages=[{"role": "user", "content": prompt}],
-    ) as stream:
-        return stream.get_final_message().content[0].text.strip()
+    def _llamar():
+        with client.messages.stream(
+            model=MODEL_TRADUCTOR,
+            max_tokens=8000,
+            system=TRADUCTOR_SYSTEM,
+            messages=[{"role": "user", "content": prompt}],
+        ) as stream:
+            return stream.get_final_message().content[0].text.strip()
+    return llamar_con_reintento(_llamar)
 
 
 def revisar_traduccion(client, titulo, cuerpo_original, cuerpo_traducido):
@@ -241,13 +265,15 @@ def revisar_traduccion(client, titulo, cuerpo_original, cuerpo_traducido):
         f'ORIGINAL (inglés):\n{cuerpo_original}\n\n'
         f'TRADUCCIÓN (español):\n{cuerpo_traducido}'
     )
-    with client.messages.stream(
-        model=MODEL_REVISOR,
-        max_tokens=8000,
-        system=REVISOR_SYSTEM,
-        messages=[{"role": "user", "content": prompt}],
-    ) as stream:
-        return stream.get_final_message().content[0].text.strip()
+    def _llamar():
+        with client.messages.stream(
+            model=MODEL_REVISOR,
+            max_tokens=8000,
+            system=REVISOR_SYSTEM,
+            messages=[{"role": "user", "content": prompt}],
+        ) as stream:
+            return stream.get_final_message().content[0].text.strip()
+    return llamar_con_reintento(_llamar)
 
 
 # ─── Checkpoint ───────────────────────────────────────────────────────────────
@@ -349,24 +375,12 @@ def cmd_pipeline():
         print(f"[{i}/{len(secciones)}] {titulo[:65]}")
         print(f"  → Agente 1: traduciendo...")
 
-        try:
-            traduccion = traducir_seccion(client, titulo, cuerpo)
-        except anthropic.RateLimitError as e:
-            retry = int(getattr(e.response, 'headers', {}).get('retry-after', 60))
-            print(f"  Rate limit. Esperando {retry}s...")
-            time.sleep(retry)
-            traduccion = traducir_seccion(client, titulo, cuerpo)
+        traduccion = traducir_seccion(client, titulo, cuerpo)
 
         time.sleep(PAUSA_ENTRE_LLAMADAS)
         print(f"  → Agente 2: revisando...")
 
-        try:
-            traduccion_final = revisar_traduccion(client, titulo, cuerpo, traduccion)
-        except anthropic.RateLimitError as e:
-            retry = int(getattr(e.response, 'headers', {}).get('retry-after', 60))
-            print(f"  Rate limit. Esperando {retry}s...")
-            time.sleep(retry)
-            traduccion_final = revisar_traduccion(client, titulo, cuerpo, traduccion)
+        traduccion_final = revisar_traduccion(client, titulo, cuerpo, traduccion)
 
         time.sleep(PAUSA_ENTRE_LLAMADAS)
 
