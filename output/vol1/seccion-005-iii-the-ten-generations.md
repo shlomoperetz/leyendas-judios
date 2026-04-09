@@ -5,7 +5,7 @@ El fratricidio
 El castigo de Caín
 Los habitantes de las siete tierras
 Los descendientes de Caín
-Los descendientes de Adán y Lilit
+Los descendientes de Adam y Lilit
 Set y sus descendientes
 Enós
 La caída de los ángeles
