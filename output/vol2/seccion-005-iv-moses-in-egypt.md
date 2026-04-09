@@ -9,7 +9,7 @@ Los padres de Moshé
 El nacimiento de Moshé
 Moshé rescatado de las aguas
 La infancia de Moshé
-Moshé salvado por Gabriel
+Moshé salvado por Gavriel
 La juventud de Moshé
 La huida
 El rey de Etiopía

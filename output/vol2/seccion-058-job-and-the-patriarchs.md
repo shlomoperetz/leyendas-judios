@@ -1,4 +1,4 @@
-# Job y los Patriarcas
+# Iyov y los Patriarcas
 
 Iyov, el gentil más piadoso que jamás vivió, uno de los pocos en portar el título honorífico de «siervo del Eterno», estaba emparentado con Yaakov por doble vínculo. Era nieto de Esav, hermano de Yaakov, y al mismo tiempo yerno del propio Yaakov, pues había tomado a Diná como segunda esposa. Era enteramente digno de pertenecer a la familia del Patriarca, porque fue hombre íntegramente recto, temeroso del Eterno y apartado del mal. De no haber flaqueado en su resignación ante la voluntad divina durante la gran prueba a que fue sometido, y de no haber murmurado contral Eterno, se le habría conferido la distinción de que su nombre quedara unido al Nombre del Eterno en la plegaria, y los hombres habrían invocado al Eterno de Iyov como ahora invocan al Eterno de Avraham, Itzjak y Yaakov. Mas no se mantuvo firme como los tres Padres, y perdió el honor que el Eterno había reservado para él.
 
