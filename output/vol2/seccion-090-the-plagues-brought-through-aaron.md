@@ -1,6 +1,6 @@
 # THE PLAGUES BROUGHT THROUGH AARON
 
-Desde el inicio de la primera plaga hasta el paso de la última, tras la cual los egipcios cedieron a cuanto Moshé y Aharón demandaban, transcurrió un año entero, pues doce meses es el plazo que el Eterno fija para la expiación de los pecados. El diluvio duró un año; Iyov padeció un año; los pecadores han de soportar los tormentos del infierno durante un año, y el juicio contra Gog al final de los tiempos se ejecutará a lo largo de un año.
+Desde el inicio de la primera plaga hasta el paso de la última, tras la cual los egipcios cedieron a cuanto Moshé y Aharón demandaban, transcurrió un año entero, pues doce meses es el plazo que el Eterno fija para la expiación de los pecados. El diluvio duró un año; Iyov padeció un año; los pecadores han de soportar los tormentos del Guehinom durante un año, y el juicio contra Gog al final de los tiempos se ejecutará a lo largo de un año.
 
 Moshé anunció la primera plaga al faraón una mañana en que el rey paseaba a la orilla del río. Este paseo matutino le permitía practicar un engaño. Se proclamaba dios y fingía no experimentar necesidad humana alguna. Para mantener la ilusión, acudía cada mañana a la ribera del río y allí aliviaba su naturaleza, a solas y sin ser visto. En una de esas ocasiones fue cuando Moshé se presentó ante él y le interpeló: «¿Acaso hay un dios que tenga necesidades humanas?». «En verdad, no soy un dios —respondió el faraón—; tan solo finjo serlo ante los egipcios, que son tan necios que habría que considerarlos asnos antes que seres humanos.»
 

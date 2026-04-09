@@ -2,7 +2,7 @@
 
 Las generaciones perversas
 El nacimiento de Avraham
-El niño proclama a Dios
+El niño reconoce al Eterno
 La primera aparición pública de Avraham
 El predicador de la fe verdadera
 En el horno ardiente

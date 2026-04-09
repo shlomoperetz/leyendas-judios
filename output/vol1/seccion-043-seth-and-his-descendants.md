@@ -1,6 +1,6 @@
 # SETH AND HIS DESCENDANTS
 
-Las exhortaciones de las esposas de Lémej surtieron efecto en Adam. Tras una separación de ciento treinta años, regresó junto a Javá, y el amor que ahora le profesaba era con mucho más intenso que el de antaño. Ella moraba en sus pensamientos aun cuando no estuviera presente ante él en cuerpo. El fruto de su reencuentro fue Shet, quien estaba destinado a ser el ancestro del Mesías.
+Las exhortaciones de las esposas de Lémej surtieron efecto en Adam. Tras una separación de ciento treinta años, regresó junto a Javá, y el amor que ahora le profesaba era con mucho más intenso que el de antaño. Ella moraba en sus pensamientos aun cuando no estuviera presente ante él en cuerpo. El fruto de su reencuentro fue Shet, quien estaba destinado a ser el ancestro del Mashíaj.
 
 Shet fue formado desde su nacimiento de tal manera que el rito de la circuncisión resultaba innecesario. Fue así uno de los trece hombres que nacieron perfectos en este sentido. Adam lo engendró a su semejanza y a su imagen, a diferencia de Caín, que no había sido a su semejanza ni a su imagen. De este modo, Shet se convirtió, en el más genuino sentido, en el padre del género humano, y en especial padre de los piadosos, mientras que los depravados y los impíos descienden de Caín.
 

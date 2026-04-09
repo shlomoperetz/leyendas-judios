@@ -19,7 +19,7 @@ Un remedio sangriento
 El pastor fiel
 La zarza ardiente
 La ascensión de Moshé
-Moshé visita el Paraíso y el Infierno
+Moshé visita el Paraíso y el Guehinom
 Moshé rechaza la misión
 Moshé castigado por su obstinación
 El regreso a Egipto

@@ -1,6 +1,6 @@
 # SOLOMON PUNISHES JOAB
 
-A la temprana edad de doce años, Shelomó sucedió a su padre David como rey. Su verdadero nombre era Yedidiá, el «amigo de Dios», pero fue reemplazado por el nombre Shelomó a causa de la paz que imperó en todo el reino durante su reinado. Llevaba además otros tres nombres: Ben, Yakeh e Itiel. Se le llamaba Ben porque fue el constructor del Templo; Yakeh, porque fue soberano del mundo entero; e Itiel, porque Dios estaba con él.
+A la temprana edad de doce años, Shelomó sucedió a su padre David como rey. Su verdadero nombre era Yedidiá, el «amigo del Eterno», pero fue reemplazado por el nombre Shelomó a causa de la paz que imperó en todo el reino durante su reinado. Llevaba además otros tres nombres: Ben, Yakeh e Itiel. Se le llamaba Ben porque fue el constructor del Templo; Yakeh, porque fue soberano del mundo entero; e Itiel, porque el Eterno estaba con él.
 
 La rebelión que Adoniyahu pretendía encabezar contra el futuro rey fue sofocada aún en vida de David, haciendo que Shelomó fuera ungido públicamente. En aquella ocasión, Shelomó cabalgó sobre una mula notable, notable porque no era producto de cruce alguno, sino de un acto especial de creación.
 
@@ -8,7 +8,7 @@ Tan pronto como ascendió al trono, Shelomó se dispuso a cumplir las instruccio
 
 Pese a todas sus excelentes cualidades, que lo hacían apto para ser no solo el primer general de David, sino también presidente de la Academia, Yoav había cometido graves crímenes que debían ser expiados. Además del asesinato de Avner y de Amasá, de los cuales era culpable, había incurrido en agravio contra el propio David. Los generales del ejército lo sospechaban de haber eliminado a Uriyá el hitita con fines propios, ante lo cual él les mostró la carta de David que condenaba a Uriyá. David habría podido perdonar a Yoav, pero quiso que expiara sus pecados en este mundo, a fin de que quedara libre de castigo en el mundo venidero.
 
-Cuando Yoav advirtió que Shelomó tenía la intención de ejecutarlo, buscó la protección del Templo. Bien sabía que de ese modo no podría salvar la vida, pues el brazo de la justicia se extiende más allá de las puertas del santuario, hasta el altar de Dios. Lo que deseaba era que se le concediera un juicio en debida forma, y no padecer la muerte por mera orden del rey. En este último caso perdería tanto la fortuna como la vida, y anhelaba dejar a sus hijos bien provistos. Entonces Shelomó le envió recado de que no tenía intención de confiscar sus bienes.
+Cuando Yoav advirtió que Shelomó tenía la intención de ejecutarlo, buscó la protección del Templo. Bien sabía que de ese modo no podría salvar la vida, pues el brazo de la justicia se extiende más allá de las puertas del santuario, hasta el altar del Eterno. Lo que deseaba era que se le concediera un juicio en debida forma, y no padecer la muerte por mera orden del rey. En este último caso perdería tanto la fortuna como la vida, y anhelaba dejar a sus hijos bien provistos. Entonces Shelomó le envió recado de que no tenía intención de confiscar sus bienes.
 
 Aunque estaba convencido de la culpabilidad de Yoav, Shelomó no obstante le otorgó el privilegio de la defensa. El rey lo interrogó: «¿Por qué mataste a Avner?»
 

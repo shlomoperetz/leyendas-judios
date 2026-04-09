@@ -12,19 +12,19 @@ La madre: «Tendría unos veinte días».
 
 Avraham: «¿Hay acaso mujer en el mundo que abandone a su hijo recién nacido en el desierto y venga a buscarlo al cabo de veinte días?».
 
-La madre: «¡Quizá el Eterno se muestre como Dios misericordioso!».
+La madre: «¡Quizá el Eterno se muestre como el Eterno misericordioso!».
 
 Avraham: «Yo soy el hijo a quien has venido a buscar a este valle».
 
 La madre: «¡Hijo mío, cuánto has crecido! ¡Con solo veinte días, y ya puedes caminar y hablar con tu boca!».
 
-Avraham: «Así es, y de este modo, oh madre mía, se te da a conocer que existe en el mundo un Dios grande, terrible, viviente y eterno, que ve pero no puede ser visto. Él está en los cielos de lo alto, y toda la tierra está llena de Su gloria».
+Avraham: «Así es, y de este modo, oh madre mía, se te da a conocer que existe en el mundo un el Eterno grande, terrible, viviente y eterno, que ve pero no puede ser visto. Él está en los cielos de lo alto, y toda la tierra está llena de Su gloria».
 
 La madre: «Hijo mío, ¿hay acaso un dios fuera de Nimrod?».
 
 Avraham: «Sí, madre, el Dios de los cielos y el Dios de la tierra; Él es también el Dios de Nimrod hijo de Canaán. Ve, pues, y lleva este mensaje a Nimrod».
 
-La madre de Avraham regresó a la ciudad y contó a su esposo Téraj cómo había encontrado a su hijo. Téraj, que era príncipe y magnate en la casa del rey, se dirigió al palacio real y se postró ante el rey cayendo sobre su rostro. Era costumbre que quien se postraba ante el rey no podía alzar la cabeza hasta que el rey se lo ordenase. Nimrod dio permiso a Téraj para que se levantara y expusiera su petición. Entonces Téraj relató todo cuanto había acontecido con su esposa y su hijo. Cuando Nimrod escuchó su relato, un temor abyecto se apoderó de él, y preguntó a sus consejeros y príncipes qué hacer con el muchacho. Ellos respondieron y dijeron: «¡Rey nuestro y dios nuestro! ¿Por qué has de temer a causa de un niño pequeño? Hay miríadas y miríadas de príncipes en tu reino, gobernadores de millares, gobernadores de centenas, gobernadores de cincuentenas y gobernadores de decenas, y superintendentes sin número. Que el menor de los príncipes vaya a buscar al muchacho y lo ponga en prisión». Pero el rey interpuso: «¿Habéis visto alguna vez a un niño de veinte días caminar con sus pies, hablar con su boca y proclamar con su lengua que hay un Dios en el cielo, que es Uno, y que no hay otro fuera de Él, que ve y no es visto?». Todos los príncipes allí reunidos quedaron horrorizados ante estas palabras.
+La madre de Avraham regresó a la ciudad y contó a su esposo Téraj cómo había encontrado a su hijo. Téraj, que era príncipe y magnate en la casa del rey, se dirigió al palacio real y se postró ante el rey cayendo sobre su rostro. Era costumbre que quien se postraba ante el rey no podía alzar la cabeza hasta que el rey se lo ordenase. Nimrod dio permiso a Téraj para que se levantara y expusiera su petición. Entonces Téraj relató todo cuanto había acontecido con su esposa y su hijo. Cuando Nimrod escuchó su relato, un temor abyecto se apoderó de él, y preguntó a sus consejeros y príncipes qué hacer con el muchacho. Ellos respondieron y dijeron: «¡Rey nuestro y dios nuestro! ¿Por qué has de temer a causa de un niño pequeño? Hay miríadas y miríadas de príncipes en tu reino, gobernadores de millares, gobernadores de centenas, gobernadores de cincuentenas y gobernadores de decenas, y superintendentes sin número. Que el menor de los príncipes vaya a buscar al muchacho y lo ponga en prisión». Pero el rey interpuso: «¿Habéis visto alguna vez a un niño de veinte días caminar con sus pies, hablar con su boca y proclamar con su lengua que hay un el Eterno en el cielo, que es Uno, y que no hay otro fuera de Él, que ve y no es visto?». Todos los príncipes allí reunidos quedaron horrorizados ante estas palabras.
 
 En ese momento apareció Satán en forma humana, vestido con ropajes de seda negra, y se postró ante el rey. Nimrod dijo: «Alza tu cabeza y expón tu petición». Satán preguntó al rey: «¿Por qué estás aterrorizado, y por qué teméis todos a causa de un niño pequeño? Te aconsejaré lo que debes hacer: abre tu arsenal y da armas a todos los príncipes, jefes y gobernadores, y a todos los guerreros, y envíalos a buscarlo para que esté a tu servicio y bajo tu dominio».
 

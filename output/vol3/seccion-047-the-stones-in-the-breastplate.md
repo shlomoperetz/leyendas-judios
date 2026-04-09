@@ -4,7 +4,7 @@ Las doce piedras diferían no solo en color, sino también en ciertas cualidades
 
 La piedra de Shimón era la esmeralda, que tiene la propiedad de quebrarse en cuanto una mujer impúdica la mira, piedra apropiada para la tribu cuyo progenitor, Shimón, se encendió en cólera ante el acto impúdico de Shjem. Era al mismo tiempo una advertencia para la tribu de Shimón, que fornicó en Shitim con las hijas de Moav, a fin de que guardase la castidad y, al igual que su piedra, no tolerase prostitución alguna.
 
-La piedra de Leví era el carbunclo, que resplandece como el relámpago, del mismo modo en que los rostros de aquella tribu resplandecían de piedad y erudición. Esta piedra tiene la virtud de hacer sabio a quien la lleva; mas la verdadera sabiduría es el temor de Dios, y fue esta tribu la única que no participó en la adoración del Becerro de Oro.
+La piedra de Leví era el carbunclo, que resplandece como el relámpago, del mismo modo en que los rostros de aquella tribu resplandecían de piedad y erudición. Esta piedra tiene la virtud de hacer sabio a quien la lleva; mas la verdadera sabiduría es el temor del Eterno, y fue esta tribu la única que no participó en la adoración del Becerro de Oro.
 
 La piedra de Yehudá era la esmeralda verde, que posee el poder de otorgar la victoria en batalla a su portador, piedra apropiada para esta tribu de la que surge la dinastía judía de reyes, que puso en fuga a sus enemigos. El color verde alude a la vergüenza que tornó verde el semblante de Yehudá cuando confesó públicamente su falta con Tamar.
 
@@ -16,7 +16,7 @@ La piedra de Dan era una especie de topacio, en la cual se divisaba el rostro in
 
 La turquesa era la piedra de Naftalí, pues concede a su dueño velocidad en la cabalgadura, y Naftalí era «cierva suelta».
 
-La piedra de Gad era el cristal, que dota de coraje en la batalla a quien lo posee, y por tanto servía a esta tribu guerrera que combatía por el Señor como exhortación a no temer a nadie y confiar en Dios.
+La piedra de Gad era el cristal, que dota de coraje en la batalla a quien lo posee, y por tanto servía a esta tribu guerrera que combatía por el Eterno como exhortación a no temer a nadie y confiar en el Eterno.
 
 El crisolito era la piedra de Asher, y así como esta piedra ayuda a la digestión y torna robusto y corpulento a su dueño, así los productos agrícolas de la tribu de Asher eran de tan excelente calidad que engordaban a quienes los consumían.
 

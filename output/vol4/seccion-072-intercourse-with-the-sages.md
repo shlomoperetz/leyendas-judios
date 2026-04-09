@@ -4,7 +4,7 @@ Las relaciones puramente humanas de Eliyahu con el mundo no se revelaron en toda
 
 Así fue Eliyahu quien enseñó a Rabí Yosé el profundo significado oculto en el pasaje de la Escritura donde la mujer es designada como ayuda idónea del hombre. Mediante ejemplos demostró al rabino cuán indispensable es la mujer para el hombre.
 
-Rabí Nehorai se benefició de su exposición acerca de por qué Dios creó insectos inútiles e incluso nocivos. La razón de su existencia es que la vista de criaturas superfluas y dañinas impide al Eterno destruir Su mundo en aquellos momentos en que, a causa de la maldad y la iniquidad que en él imperan, se arrepiente de haberlo creado. Si Él preserva criaturas que en el mejor de los casos son inútiles y en el peor perjudiciales, cuánto más habrá de preservar a los seres humanos con todas sus potencialidades para el bien.
+Rabí Nehorai se benefició de su exposición acerca de por qué el Eterno creó insectos inútiles e incluso nocivos. La razón de su existencia es que la vista de criaturas superfluas y dañinas impide al Eterno destruir Su mundo en aquellos momentos en que, a causa de la maldad y la iniquidad que en él imperan, se arrepiente de haberlo creado. Si Él preserva criaturas que en el mejor de los casos son inútiles y en el peor perjudiciales, cuánto más habrá de preservar a los seres humanos con todas sus potencialidades para el bien.
 
 Al mismo Rabí Nehorai le reveló Eliyahu que el Eterno envía terremotos y otros fenómenos destructivos cuando contempla los lugares de diversión prósperos y florecientes, mientras el Templo yace convertido en un montón de polvo y cenizas.
 

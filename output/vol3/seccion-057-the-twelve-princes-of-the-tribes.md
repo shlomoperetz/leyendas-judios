@@ -8,7 +8,7 @@ El príncipe de la tribu de Shimón se llamaba Shelumiel, «mi Dios es paz», pa
 
 El príncipe de la tribu de Yehudá llevaba el nombre de Najshón, «ola del mar», hijo de Aminadav, «príncipe de Mi pueblo», porque el príncipe recibió esta dignidad como recompensa por haberse arrojado a las olas del Mar Rojo para glorificar el nombre del Eterno.
 
-La tribu de Isajar tenía por príncipe a Netanel, «Dios dio», pues esta tribu consagró su vida a la Torá dada por el Eterno a Moshé. En consecuencia, Netanel era llamado hijo de Tzuar, «carga», porque Isajar asumió la carga de pronunciar juicio en las disputas legales de las demás tribus.
+La tribu de Isajar tenía por príncipe a Netanel, «el Eterno dio», pues esta tribu consagró su vida a la Torá dada por el Eterno a Moshé. En consecuencia, Netanel era llamado hijo de Tzuar, «carga», porque Isajar asumió la carga de pronunciar juicio en las disputas legales de las demás tribus.
 
 En correspondencia con la ocupación de la tribu de Zevulún, su príncipe fue llamado Eliav, «la nave», hijo de Jelón, «la arena», pues esta tribu pasaba su vida en barcos, buscando «tesoros ocultos en la arena».
 
@@ -22,7 +22,7 @@ El príncipe de la tribu de Dan llevaba el nombre de Ajiezer, «hermano de auxil
 
 La tribu de Asher se distinguía por la belleza de sus mujeres, tan excelsa que incluso las ancianas entre ellas eran más hermosas y vigorosas que las jóvenes doncellas de las demás tribus. Por esta razón, los reyes elegían a las hijas de esta tribu como esposas, y estas, mediante su intercesión ante los reyes, salvaron la vida de muchos que habían sido condenados a muerte. De ahí el nombre del príncipe de la tribu de Asher, Paguiel, «el intercesor», hijo de Ojrán, «el afligido», pues las mujeres de la tribu de Asher, mediante su intercesión, obtuvieron gracia para los afligidos.
 
-El príncipe de la tribu de Gad llevaba el nombre de Eliasaf, «Dios multiplicó», hijo de Deuel, «Dios es testigo». Para recompensarlos por haber cruzado el Jordán y no regresar a sus propiedades de este lado del río hasta que la tierra prometida fuese conquistada, sus riquezas fueron multiplicadas por el Eterno; pues cuando, al retornar, hallaron al enemigo en su hogar, el Eterno los auxilió y se apoderaron de todas las posesiones de sus enemigos. El Eterno fue además testigo de que esta tribu no albergaba motivo perverso alguno cuando erigió un altar en su tierra.
+El príncipe de la tribu de Gad llevaba el nombre de Eliasaf, «el Eterno multiplicó», hijo de Deuel, «el Eterno es testigo». Para recompensarlos por haber cruzado el Jordán y no regresar a sus propiedades de este lado del río hasta que la tierra prometida fuese conquistada, sus riquezas fueron multiplicadas por el Eterno; pues cuando, al retornar, hallaron al enemigo en su hogar, el Eterno los auxilió y se apoderaron de todas las posesiones de sus enemigos. El Eterno fue además testigo de que esta tribu no albergaba motivo perverso alguno cuando erigió un altar en su tierra.
 
 El príncipe de la tribu de Naftalí fue llamado Ajirá, «pradera deseable», hijo de Enán, «nubes», pues la tierra de esta tribu se distinguía por su extraordinaria excelencia. Sus frutos eran exactamente lo que sus dueños «deseaban», y todo ello gracias a la abundancia de agua, pues las «nubes» derramaban copiosa lluvia sobre su tierra.
 
