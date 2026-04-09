@@ -4,7 +4,7 @@ La reunión de los animales en el arca no fue sino la menor parte de la tarea im
 
 Las dificultades se acrecentaron cuando el diluvio comenzó a zarandear el arca de un lado a otro. Cuantos iban dentro eran sacudidos como lentejas en una olla. Los leones se pusieron a rugir, los bueyes mugían, los lobos aullaban, y todos los animales daban rienda suelta a su agonía, cada uno mediante los sonidos que podía emitir.
 
-También Nóaj y sus hijos, creyendo cercana la muerte, rompieron en llanto. Nóaj oró al Eterno: «¡Oh, Eterno, socórrenos, pues no podemos soportar el mal que nos rodea! Las olas se encrespan en torno a nosotros, los torrentes de destrucción nos aterran, y la muerte nos mira de frente. ¡Oh, escucha nuestra plegaria, líbranos, inclínate hacia nosotros y sénos propicio! ¡Redímenos y sálvanos!»
+También Nóaj y sus hijos, creyendo cercana la muerte, rompieron en llanto. Nóaj oró al Eterno: «¡Oh Eterno, socórrenos, pues no podemos soportar el mal que nos rodea! Las olas se encrespan en torno a nosotros, los torrentes de destrucción nos aterran, y la muerte nos mira de frente. ¡Oh, escucha nuestra plegaria, líbranos, inclínate hacia nosotros y sénos propicio! ¡Redímenos y sálvanos!»
 
 El diluvio fue producido por la unión de las aguas masculinas, que están por encima del firmamento, con las aguas femeninas que brotan de la tierra. Las aguas superiores se precipitaron por el espacio dejado cuando el Eterno retiró dos estrellas de la constelación de las Pléyades. Después, para poner fin al diluvio, el Eterno hubo de transferir dos estrellas de la constelación de la Osa a la constelación de las Pléyades. Por eso la Osa persigue a las Pléyades: quiere recuperar a sus dos hijos, mas no le serán devueltos sino en el mundo venidero.
 
