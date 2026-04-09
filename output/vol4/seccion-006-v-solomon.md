@@ -1,14 +1,14 @@
 # V. SOLOMON
 
-Salomón castiga a Yoav
-El matrimonio de Salomón
+Shlomó castiga a Yoav
+El matrimonio de Shlomó
 Su sabiduría
 La reina de Shevá
-Salomón, señor de los demonios
+Shlomó, señor de los demonios
 La construcción del Templo
-El trono de Salomón
+El trono de Shlomó
 El hipódromo
 Lecciones de humildad
 Asmodeo
-Salomón como mendigo
-La corte de Salomón
+Shlomó como mendigo
+La corte de Shlomó

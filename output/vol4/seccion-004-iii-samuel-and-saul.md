@@ -1,8 +1,8 @@
 # III. SAMUEL AND SAUL
 
 Elcaná y Janá
-La juventud de Samuel
+La juventud de Shmuel
 Elí y sus hijos
-Las obras de Samuel
+Las obras de Shmuel
 El reinado de Saúl
 La corte de Saúl

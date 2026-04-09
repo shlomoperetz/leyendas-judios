@@ -1,4 +1,4 @@
-# Salomón castiga a Yoav
+# Shlomó castiga a Yoav
 
 A la temprana edad de doce años, Shelomó sucedió a su padre David como rey. Su verdadero nombre era Yedidiá, el «amigo del Eterno», pero fue reemplazado por el nombre Shelomó a causa de la paz que imperó en todo el reino durante su reinado. Llevaba además otros tres nombres: Ben, Yakeh e Itiel. Se le llamaba Ben porque fue el constructor del Templo; Yakeh, porque fue soberano del mundo entero; e Itiel, porque el Eterno estaba con él.
 

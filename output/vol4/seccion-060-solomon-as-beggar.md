@@ -1,4 +1,4 @@
-# Salomón como mendigo
+# Shlomó como mendigo
 
 Desterrado de su hogar, despojado de su reino, Shelomó vagó por tierras lejanas, entre extraños, mendigando el pan de cada día. Mas su humillación no acababa ahí: las gentes lo tenían por demente, pues jamás se cansaba de asegurarles que él era Shelomó, el grande y poderoso rey de Yehudá. Naturalmente, semejante pretensión les parecía descabellada.
 

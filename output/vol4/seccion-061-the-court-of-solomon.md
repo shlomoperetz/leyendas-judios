@@ -1,4 +1,4 @@
-# La corte de Salomón
+# La corte de Shlomó
 
 Así como David se había rodeado de grandes eruditos y héroes de renombre, la corte de Shelomó fue lugar de reunión de los más insignes de su pueblo. El más importante de todos ellos era sin duda Benaías, hijo de Yehoyadá, que no tuvo par en sabiduría ni en piedad ni en la época del primer Templo ni en la del segundo. En su condición de canciller de Shelomó, gozaba del favor especial del rey. Con frecuencia era invitado a acompañar al monarca en sus partidas de ajedrez. El sabio rey, como era natural, resultaba siempre vencedor. Un día, Shelomó se ausentó un instante del tablero; Benaías aprovechó su ausencia para retirar una de las piezas del rey, y el rey perdió la partida. Shelomó reflexionó largamente sobre lo sucedido. Llegó a la conclusión de que su canciller había obrado con deshonestidad, y se propuso darle una lección.
 
