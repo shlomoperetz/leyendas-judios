@@ -20,6 +20,7 @@ def apply_corrections(text):
     text = re.sub(r'\bElías\b', 'Eliyahu', text)
     text = re.sub(r'\bJosué\b', 'Yehoshúa', text)
     text = re.sub(r'\bMoisés\b', 'Moshé', text)
+    text = re.sub(r'\bGabriel\b', 'Gavriel', text)
 
     # ══════════════════════════════════════════════
     # 2. ARTEFACTOS MECÁNICOS
