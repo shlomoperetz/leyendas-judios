@@ -1,4 +1,4 @@
-# THE PASSAGE THROUGH THE RED SEA
+# El paso a través del Mar Rojo
 
 A la mañana siguiente de aquella noche memorable, aunque el mar aún no se había convertido en tierra firme, los israelitas, llenos de confianza en el Eterno, estaban dispuestos a arrojarse a sus aguas. Las tribus rivalizaron entre sí por el honor de ser las primeras en saltar. Sin aguardar el desenlace de aquella disputa de palabras, la tribu de Binyamín se lanzó al agua, y los príncipes de Yehudá se enfurecieron de tal modo al verse privados de la preeminencia ante el peligro que apedrearon a los benjaminitas. El Eterno sabía que tanto los de Yehudá como los de Binyamín estaban animados por un propósito loable. Unos y otros no deseaban sino engrandecer el Nombre del Eterno, y Él recompensó a ambas tribus: en el territorio asignado a Binyamín estableció la Shejiná su morada, y la realeza de Israel fue conferida a Yehudá.
 

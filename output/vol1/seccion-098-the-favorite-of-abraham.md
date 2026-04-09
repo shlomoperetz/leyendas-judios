@@ -1,4 +1,4 @@
-# THE FAVORITE OF ABRAHAM
+# El favorito de Avraham
 
 Mientras Esav y Yaakov fueron pequeños, no era posible juzgar cabalmente sus caracteres. Eran como el mirto y el espino, que en las primeras etapas de su crecimiento resultan indistinguibles. Mas cuando alcanzan su pleno desarrollo, el mirto se reconoce por su fragancia y el espino por sus púas.
 

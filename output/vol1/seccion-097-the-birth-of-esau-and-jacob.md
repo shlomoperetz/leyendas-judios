@@ -1,4 +1,4 @@
-# THE BIRTH OF ESAU AND JACOB
+# El nacimiento de Esav y Yaakov
 
 Itzjak era la imagen viva de su padre en cuerpo y alma. Se le asemejaba en cada rasgo: «en belleza, sabiduría, fortaleza, riqueza y obras nobles». Era, por tanto, tan grande honor para Itzjak ser llamado hijo de su padre como para Avraham ser llamado padre de su hijo, y aunque Avraham fue progenitor de treinta naciones, siempre se lo designa como el padre de Itzjak.
 

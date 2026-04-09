@@ -1,4 +1,4 @@
-# MOSES' SPEECH OF ADMONITION
+# El discurso de admonición de Moshé
 
 Así como Avraham, antes de su muerte, dirigió a su hijo Itzjak palabras de exhortación para que caminase por las sendas del Eterno, y este a su vez hizo lo propio con su hijo Yaakov, y Yaakov con sus hijos, así también Moshé no partió de este mundo sin antes pedir cuentas a Israel por sus pecados y amonestarlos a observar los mandamientos del Eterno. El discurso de amonestación de Moshé produjo un efecto mayor que la revelación del Decálogo en el monte Sinaí, pues mientras Israel, poco después de haber dicho en el Sinaí «haremos conforme a lo que hemos oído», transgredió adorando al Becerro de Oro, las palabras de exhortación de Moshé dejaron en ellos una impresión poderosa, y los devolvió al Eterno y a la Torá. Dijo entonces el Eterno: «Como recompensa por haber logrado tus palabras de exhortación que Israel me siguiese, designaré estas palabras como tuyas, aun cuando las hayas pronunciado únicamente en cumplimiento de Mi mandato.»
 

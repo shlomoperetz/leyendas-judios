@@ -1,4 +1,4 @@
-# ZEBULON EXHORTS UNTO COMPASSION
+# Zevulún exhorta a la compasión
 
 Cuando Zebulón alcanzó la edad de ciento catorce años, dos años después de la muerte de Yosef, reunió a sus hijos y los amonestó con estas palabras a llevar una vida de piedad: «Yo soy Zebulón, don precioso para mis padres, pues cuando nací, mi padre se hizo muy rico, por medio de las varas estriadas, en rebaños de ovejas y manadas de ganado. No tengo conciencia de pecado alguno en mí, ni recuerdo ninguna maldad cometida por mi mano, a no ser el pecado involuntario contra Yosef, pues no revelé a mi padre, por consideración hacia mis hermanos, lo que había acontecido con su hijo predilecto, aunque en secreto me lamenté sobremanera. Temía a mis hermanos, porque habían acordado que quien desvelase el secreto sería pasado a filo de espada. Cuando tramaron matar a Yosef, les supliqué entre lágrimas que no pecasen de tal manera.
 

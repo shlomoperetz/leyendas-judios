@@ -1,4 +1,4 @@
-# THE BEGINNING OF THE EGYPTIAN BONDAGE
+# El comienzo de la esclavitud en Egipto
 
 En cuanto Yaakov hubo muerto, los ojos de los israelitas se cerraron, y con ellos sus corazones. Comenzaron a sentir el dominio del extranjero, aunque la verdadera servidumbre no los sometió sino hasta tiempo después. Mientras vivió uno solo de los hijos de Yaakov, los egipcios no se atrevieron a acercarse a los israelitas con intenciones malignas. Solo cuando Leví, el último de todos ellos, partió de este mundo, comenzó su sufrimiento. Un cambio en la relación de los egipcios hacia los israelitas se había hecho notar, ciertamente, de manera inmediata tras la muerte de Yosef, pero no se despojaron por completo de su máscara hasta que Leví dejó de existir. Entonces la esclavitud de los israelitas sobrevino con toda severidad.
 

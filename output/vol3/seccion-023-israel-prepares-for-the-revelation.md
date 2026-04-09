@@ -1,4 +1,4 @@
-# ISRAEL PREPARES FOR THE REVELATION
+# Israel se prepara para la revelación
 
 Así como aquel que ha de ser admitido al judaísmo debe someterse primero a las tres ceremonias de circuncisión, bautismo y sacrificio, del mismo modo Israel no recibió la Torá sino hasta haber cumplido estas tres ceremonias. Ya habían sido circuncidados en Egipto. El bautismo les fue impuesto dos días antes de la revelación en el monte Sinaí. El día previo a la revelación, Moshé consignó en un libro la alianza entre Israel y su Dios, y en la mañana del día de la revelación se ofrecieron sacrificios como fortalecimiento de dicha alianza.
 

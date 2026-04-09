@@ -1,4 +1,4 @@
-# MANASSEH
+# Menashé
 
 Tras la muerte de Jizquiyahu, Menashé dejó de servir al Eterno de su padre. Hizo cuanto su perversa imaginación le dictaba. Destruyó el altar y en el espacio interior del Templo erigió un ídolo con cuatro rostros, copiados de las cuatro figuras del trono del Eterno. Estaba colocado de tal modo que, desde cualquier dirección por la que se entrase en el Templo, un rostro del ídolo se alzaba frente al visitante.
 

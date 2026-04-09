@@ -1,4 +1,4 @@
-# BALAAM, THE HEATHEN PROPHET
+# Bilam, el profeta pagano
 
 El hombre a quien los moabitas y los midianitas consideraban igual a Moshé no era otro que Laván, archienemigo de Israel, quien en tiempos antiguos había querido extirpar por completo a Yaakov y a toda su familia, y que más tarde había incitado al Faraón y a Amalec contra el pueblo de Israel para procurar su destrucción. De ahí también el nombre de Bilam, «Devorador de Naciones», pues estaba resuelto a devorar a la nación de Israel. Justo en aquel momento Bilam se hallaba en el cénit de su poder, pues su maldición había acarreado sobre los moabitas la derrota a manos de Sijón, y su profecía de que su compatriota Balak ceñiría la corona real acababa de cumplirse, de modo que todos los reyes enviaban emisarios a solicitar su consejo. Había ido ascendiendo gradualmente de intérprete de sueños a hechicero, y había alcanzado la dignidad aún mayor de profeta, superando así incluso a su padre, quien ciertamente había sido también profeta, pero no tan ilustre como su hijo.
 

@@ -1,4 +1,4 @@
-# THE SEA DIVIDED
+# El mar dividido
 
 El Eterno habló a Moshé y le dijo: «¿Por qué permaneces aquí orando? La plegaria de Mis hijos se ha anticipado a la tuya. A ti no te queda sino alzar tu vara y extender tu mano sobre el mar, y dividirlo.» Moshé respondió: «Tú me ordenas dividir el mar y dejar al descubierto la tierra seca en medio de él, y sin embargo Tú mismo decretaste como ley perpetua que la arena fuese puesta por frontera del mar.» Y de nuevo habló el Eterno a Moshé: «¿Acaso no has leído el principio de la Torá? Yo, sí, Yo mismo dije: "Reúnanse las aguas que están debajo del cielo en un solo lugar, y aparezca lo seco", y en aquel momento establecí la condición de que las aguas se dividirían ante Israel. Toma la vara que te di, ve al mar en Mi misión, y habla así: "¡Soy el mensajero enviado por el Creador del mundo! Descubre tus sendas, oh mar, para Mis hijos, a fin de que crucen por medio de ti sobre tierra seca."»
 

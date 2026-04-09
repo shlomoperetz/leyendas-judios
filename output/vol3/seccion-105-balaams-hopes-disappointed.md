@@ -1,4 +1,4 @@
-# BALAAM'S HOPES DISAPPOINTED
+# Las esperanzas de Bilam frustradas
 
 Cuando Balak vio que Bilam, en lugar de maldecir, había alabado y ensalzado a Israel, lo condujo a la cima del Pisgá, confiando en que allí lograría maldecir a Israel. Mediante sus artes de hechicería, Balak había descubierto que el Pisgá habría de ser un lugar de infortunio para Israel, y por ello pensó que Bilam pronunciaría allí su maldición contra ellos. Se equivocaba, sin embargo: el desastre que aguardaba a Israel en aquel paraje era la muerte de su líder Moshé, quien allí murió, y el Eterno se negó a conceder el deseo de Bilam también en aquel lugar.
 

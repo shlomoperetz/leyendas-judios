@@ -1,4 +1,4 @@
-# THE FESTIVITIES IN SHUSHAN
+# Las festividades en Shushán
 
 Al expirar los ciento ochenta días destinados al banquete para los nobles, Ajashverosh dispuso una gran celebración para los habitantes de Shushán, la ciudad capital de Elam. Desde la creación del mundo hasta después del diluvio, había estado en vigor la ley no escrita de que el hijo primogénito de los patriarcas sería el gobernante del mundo. Así, Shet fue el sucesor de Adam, y tras él vino Enosh, y de ese modo la sucesión prosiguió, de primogénito en primogénito, hasta Noaj y su hijo mayor Shem. Ahora bien, el primogénito de Shem fue Elam, y según la costumbre, a él debía habérsele otorgado el dominio universal que era su herencia. Pero Shem, siendo profeta, sabía que Avraham y su posteridad, los israelitas, no descenderían de la familia de Elam, sino de la de Arpajshad. Por ello designó a Arpajshad como su sucesor, y a través de él la soberanía descendió hasta Avraham, y de ahí a Itzjak, Yaakov y Yehudá, y a David y su posteridad, hasta el último rey de Yehudá, Tzidkiyahu, a quien Nevujadnetzar despojó de su soberanía.
 

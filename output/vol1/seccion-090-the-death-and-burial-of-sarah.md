@@ -1,4 +1,4 @@
-# THE DEATH AND BURIAL OF SARAH
+# La muerte y sepultura de Sará
 
 La muerte de Sará tuvo lugar entonces, con gran magnificencia y el pésame de todos. Shem y su hijo Ever, Avimélek rey de los filisteos, Aner, Eshkol y Mamré, así como todos los grandes de la tierra, siguieron su féretro. Se guardó un duelo de siete días, y todos los habitantes de la tierra vinieron a dar el pésame a Avraham y a Itzjak.
 

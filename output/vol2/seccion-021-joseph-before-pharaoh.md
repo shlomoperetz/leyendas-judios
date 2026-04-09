@@ -1,4 +1,4 @@
-# JOSEPH BEFORE PHARAOH
+# Yosef ante el Faraón
 
 «Malditos sean los malvados, que jamás realizan una buena acción sin mácula.» El jefe de los coperos describió a Yosef con desprecio, llamándolo «esclavo», a fin de que le fuese imposible ocupar un puesto distinguido en la corte, pues era ley inscrita en los códigos de Egipto que un esclavo no podía jamás sentarse en el trono como rey, ni siquiera poner el pie en el estribo de un caballo.
 

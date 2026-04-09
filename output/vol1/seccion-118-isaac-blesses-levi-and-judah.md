@@ -1,4 +1,4 @@
-# ISAAC BLESSES LEVI AND JUDAH
+# Itzjak bendice a Leví y a Yehudá
 
 Si un hombre formula un voto y no lo cumple a su debido tiempo, tropezará con tres pecados graves: idolatría, impudicia y derramamiento de sangre. Yaakov había incurrido en la culpa de no cumplir con prontitud el voto que había tomado sobre sí en Bet-El, y por ello el castigo lo alcanzó: su hija fue deshonrada, sus hijos dieron muerte a hombres, y retuvieron los ídolos hallados entre el botín de Shejem. Por eso, cuando Yaakov se postró ante el Eterno tras la sangrienta atrocidad de Shejem, Él le ordenó levantarse, ir a Bet-El y cumplir el voto que allí había pronunciado. Antes de encaminarse al lugar sagrado para hacer lo que el Eterno le mandaba, Yaakov tomó los ídolos que estaban en poder de sus hijos y los terafim que Rajel había robado a su padre, los hizo pedazos y enterró los fragmentos bajo una encina en el monte Guerizim, arrancando el árbol con una sola mano, ocultando los restos de los ídolos en la oquedad que quedó en la tierra y plantando de nuevo la encina con una sola mano.
 

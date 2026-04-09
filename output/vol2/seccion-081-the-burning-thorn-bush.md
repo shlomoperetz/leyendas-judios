@@ -1,4 +1,4 @@
-# THE BURNING THORN-BUSH
+# La zarza ardiente
 
 Cuando Moshé se acercó al monte Jorev, advirtió de inmediato que se trataba de un lugar sagrado, pues observó que las aves que pasaban no se posaban sobre él. A su llegada, la montaña comenzó a moverse, como si quisiera avanzar a su encuentro, y solo recobró su quietud cuando el pie de Moshé se posó sobre ella. Lo primero que Moshé percibió fue la prodigiosa zarza ardiente, cuya parte superior era una llama viva que ni consumía la zarza ni le impedía dar flores mientras ardía, pues el fuego celestial posee tres cualidades singulares: produce flores, no consume el objeto en torno al cual danza y es de color negro. El fuego que Moshé contempló en la zarza era la aparición del ángel Mijael, quien había descendido como precursor de la propia Shejiná, que habría de descender poco después. Era deseo del Eterno conversar con Moshé, mas este no estaba dispuesto a permitir que nada interrumpiera la labor que tenía encomendada. Por eso el Eterno lo sobresaltó con el prodigioso fenómeno de la zarza ardiente. Aquello detuvo a Moshé, y entonces el Eterno le habló.
 

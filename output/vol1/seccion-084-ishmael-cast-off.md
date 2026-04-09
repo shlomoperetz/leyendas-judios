@@ -1,4 +1,4 @@
-# ISHMAEL CAST OFF
+# La expulsión de Ishmael
 
 Cuando Itzjak creció, estallaron disputas entre él e Ishmael a causa de los derechos de primogenitura. Ishmael insistía en que debía recibir una porción doble de la herencia tras la muerte de Avraham, mientras que Itzjak habría de recibir tan solo una. Ishmael, acostumbrado desde su juventud al manejo del arco y la flecha, solía lanzar sus proyectiles en dirección a Itzjak, diciendo a la vez que no era más que una broma. Sarah, sin embargo, exigió que Avraham transfiriera a Itzjak cuanto poseía, para que no surgieran disputas tras su muerte, «pues —dijo— Ishmael no es digno de ser coheredero con mi hijo, ni con un hombre como Itzjak, y ciertamente no con mi hijo Itzjak». Además, Sarah insistió en que Avraham se divorciara de Hagar, madre de Ishmael, y despidiera a la mujer y a su hijo, de modo que nada hubiera en común entre ellos y su propio hijo, ni en este mundo ni en el mundo venidero.
 

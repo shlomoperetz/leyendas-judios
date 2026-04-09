@@ -1,4 +1,4 @@
-# JOB'S SUFFERING
+# Los padecimientos de Job
 
 Investido de poder ilimitado, Satán se propuso despojar a Job de todo cuanto poseía. Hizo arder parte de su ganado, y la otra parte fue arrebatada por enemigos. Lo que más dolor le causó a Job fue que los propios beneficiarios de su generosidad se volvieron contra él y tomaron de sus bienes.
 

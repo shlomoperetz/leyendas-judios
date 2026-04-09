@@ -1,4 +1,4 @@
-# INTERCOURSE WITH THE SAGES
+# Trato con los sabios
 
 Las relaciones puramente humanas de Eliyahu con el mundo no se revelaron en toda su plenitud ni en sus obras de caridad ni en su rigor censurador, sino más bien en su trato gentil y erudito con los grandes de Israel, especialmente con los sabios rabinos de la época talmúdica. Es a un tiempo discípulo y maestro de ellos. A uno acude en busca de instrucción sobre puntos difíciles, a otro él mismo dispensa enseñanza. Como es natural, su conocimiento íntimo del mundo sobrenatural le hace aparecer con mayor frecuencia en el papel de quien da que en el de quien recibe. Más de un fragmento de sabiduría secreta aprendieron los maestros judíos de labios de Eliyahu, y fue él quien, con la velocidad del rayo, llevaba las enseñanzas de un rabino a otro que moraba a cientos de millas de distancia.
 

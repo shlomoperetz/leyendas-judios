@@ -1,4 +1,4 @@
-# ZEPHO KING OF KITTIM
+# Tsefó, rey de Kitím
 
 Durante los primeros trece años de su reinado, los africanos no intentaron perturbar la paz de Kitim, pero entonces invadieron la tierra, solo para ser severamente rechazados por Tzefó, quien persiguió a las tropas hasta las mismísimas fronteras de África, y el rey Agnías quedó tan consternado que durante algún tiempo no se atrevió a tomar represalias. Cuando finalmente hizo un segundo intento, sus tropas fueron aniquiladas por Tzefó hasta el último hombre. Entonces Agnías, desesperado, congregó a todos los habitantes de África, tan numerosos como la arena a la orilla del mar, y unió su inmenso ejército con el de su hermano Lucus, y así emprendió su tercer ataque contra Tzefó y el pueblo de la tierra de Kitim.
 

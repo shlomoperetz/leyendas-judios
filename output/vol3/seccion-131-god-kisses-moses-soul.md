@@ -1,4 +1,4 @@
-# GOD KISSES MOSES' SOUL
+# El Eterno besa el alma de Moshé
 
 Entretanto, el tiempo de Moshé había llegado a su fin. Una voz resonó desde el cielo, diciendo: «¿Por qué, Moshé, te esfuerzas en vano? Tu último instante está próximo.» Moshé se irguió al punto en oración y dijo: «Señor del universo, ten presente el día en que Te revelaste a mí en la zarza de espinos, y ten presente también el día en que ascendí al cielo y durante cuarenta días no tomé alimento ni bebida. Tú, Clemente y Misericordioso, no me entregues en manos de Samael.» El Eterno respondió: «He escuchado tu plegaria. Yo mismo me ocuparé de ti y te daré sepultura.» Entonces Moshé se santificó como hacen los Serafines que rodean la Majestad Divina, tras lo cual Eterno, desde los cielos más altos, Se reveló para recibir el alma de Moshé. Cuando Moshé contempló al Santo, bendito sea Su Nombre, cayó rostro en tierra y dijo: «Señor del universo, con amor creaste el mundo y con amor lo guías. Trátame a mí también con amor, y no me entregues en manos del Ángel de la Muerte.» Una voz celestial se dejó oír y dijo: «Moshé, no temas. "Tu justicia irá delante de ti; la gloria del Eterno será tu galardón."»
 

@@ -1,4 +1,4 @@
-# THE BLASPHEMER AND THE SABBATH-BREAKER
+# El blasfemo y el violador del Shabat
 
 Cuando Israel recibió la Torá del Eterno, todas las demás naciones los envidiaron y dijeron: «¿Por qué han sido estos los elegidos por el Eterno de entre todos los pueblos?» Mas el Eterno les cerró la boca respondiendo: «Traedme vuestros registros de linaje, y Mis hijos traerán los suyos.» Las naciones no pudieron demostrar la pureza de sus familias, pero Israel se alzó sin mácula, cada hombre entre ellos dispuesto a probar la limpieza de su ascendencia, de modo que las naciones prorrumpieron en alabanzas ante la pureza familiar de Israel, la cual fue recompensada por el Eterno con la Torá en virtud de tal excelencia.
 

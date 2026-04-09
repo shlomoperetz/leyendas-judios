@@ -1,4 +1,4 @@
-# JACOB AND ESAU PREPARE TO MEET
+# Yaakov y Esav se preparan para el encuentro
 
 El mensaje de Labán despertó en Esav el viejo odio hacia Yaakov con furia redoblada, y reunió a los hombres de su casa, que sumaban sesenta. Con ellos y trescientos cuarenta habitantes de Seír, partió a dar batalla a Yaakov y darle muerte. Dividió a sus guerreros en siete cohortes, entregando a su hijo Elifaz su propia división de sesenta hombres, y poniendo las otras seis divisiones bajo el mando de otros tantos joritas.
 

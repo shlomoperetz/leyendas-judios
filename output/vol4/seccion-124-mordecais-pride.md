@@ -1,4 +1,4 @@
-# MORDECAI'S PRIDE
+# El orgullo de Mordejai
 
 Cuando Ajashverosh elevó a Hamán a su alto cargo, dictó al mismo tiempo la orden de que cuantos lo viesen habían de postrarse ante él y rendirle honores divinos. Para hacer manifiesto que el homenaje que se le debía revestía carácter idolátrico, Hamán hizo coser a sus vestiduras la imagen de un ídolo, de suerte que quien se inclinara ante él adoraba al mismo tiempo a un ídolo. Solo Mordejái, entre todos los que servían en la corte, se negó a obedecer la orden real. Los más altos dignatarios, incluso los jueces más encumbrados, tributaban a Hamán la reverencia mandada por el rey. Los propios judíos suplicaron a Mordejái que no provocase la furia de Hamán ni causara con ello la ruina de Israel. Mordejái, sin embargo, permaneció firme; ninguna persuasión logró moverlo a rendir a un mortal el tributo debido a la Divinidad.
 

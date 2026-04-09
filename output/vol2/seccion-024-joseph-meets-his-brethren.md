@@ -1,4 +1,4 @@
-# JOSEPH MEETS HIS BRETHREN
+# Yosef se encuentra con sus hermanos
 
 Una gran corona de oro sobre su cabeza, ataviado en biso y púrpura, y rodeado de sus hombres valerosos, Yosef estaba sentado en su trono en el palacio. Sus hermanos se postraron ante él, llenos de admiración por su belleza, su porte majestuoso y su majestad. No lo reconocieron, pues cuando Yosef fue vendido como esclavo era un joven imberbe. Pero él sí reconoció a sus hermanos, cuya apariencia no había cambiado en nada, pues ya eran hombres barbados cuando fue separado de ellos.
 

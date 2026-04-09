@@ -1,4 +1,4 @@
-# THE ERECTION OF THE TABERNACLE COMMANDED
+# La orden de erigir el Tabernáculo
 
 Cuando, en aquel memorable Día de la Expiación, el Eterno manifestó Su perdón a Israel con las palabras «os he perdonado conforme a lo que he dicho», Moshé dijo: «Ahora estoy convencido de que has perdonado a Israel, pero desearía que mostraras también a las naciones que te has reconciliado con ellos.» Pues estas decían: «¿Cómo puede una nación que oyó la palabra del Eterno en el Sinaí —"No tendrás otros dioses delante de Mí"— y que cuarenta días después clamó ante el becerro —"Este es tu dios, oh Israel"—, esperar que el Eterno se reconcilie jamás con ella?» Dijo entonces el Eterno a Moshé: «Tan cierto como que tú vives, haré morar Mi Shejiná entre ellos, para que todos sepan que he perdonado a Israel. Mi santuario en medio de ellos será testimonio de Mi perdón por sus pecados, y por ello bien puede llamarse "Tabernáculo del Testimonio".»
 

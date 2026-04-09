@@ -1,4 +1,4 @@
-# THE GENERATION OF THE DELUGE
+# La generación del Diluvio
 
 Mientras los descendientes de Caín se asemejaban a su padre en pecaminosidad y depravación, los descendientes de Shet llevaban una vida piadosa y ordenada, y la diferencia entre la conducta de ambos linajes se reflejaba en sus moradas. La familia de Shet se había asentado en las montañas cercanas al Paraíso, en tanto que la familia de Caín residía en el campo de Damasco, el lugar mismo donde Hével fue muerto a manos de Caín.
 

@@ -1,4 +1,4 @@
-# THE TRANSLATION OF ENOCH
+# La traslación de Enoc
 
 La pecaminosidad de los hombres fue la razón por la cual Janoj fue trasladado al cielo. Así lo refirió el propio Janoj al rabí Ishmael. Cuando la generación del diluvio transgredió y dijo al Eterno: «Apártate de nosotros, pues no deseamos conocer Tus caminos», Janoj fue elevado al cielo para servir allí como testigo de que el Eterno no era un el Eterno cruel, pese a la destrucción decretada sobre todos los seres vivos de la tierra.
 

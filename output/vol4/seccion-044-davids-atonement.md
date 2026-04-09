@@ -1,4 +1,4 @@
-# DAVID'S ATONEMENT
+# La expiación de David
 
 Todos estos sufrimientos no bastaron para expiar el pecado de David. Dijo el Eterno una vez: «¿Hasta cuándo permanecerá este pecado oculto en tu mano y sin expiación? Por tu causa fue destruida la ciudad sacerdotal de Nov, por tu causa fue Doeg el edomita expulsado de la comunión de los piadosos, y por tu causa perecieron Shaúl y sus tres hijos. ¿Qué deseas ahora: que tu casa perezca, o que tú mismo seas entregado en manos de tus enemigos?» David eligió la segunda sentencia.
 

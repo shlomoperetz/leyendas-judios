@@ -1,4 +1,4 @@
-# JACOB WITH LABAN
+# Yaakov con Laván
 
 La llegada de Rajel al pozo en el preciso momento en que Yaakov alcanzaba el territorio de Jarán fue un auspicioso presagio. Encontrarse con jóvenes doncellas al entrar por primera vez en una ciudad es señal cierta de que la fortuna sonríe a los propósitos de uno. La experiencia lo demuestra a través de Eliézer, Yaakov, Moshé y Shaúl. Todos ellos se toparon con doncellas al aproximarse a un lugar desconocido, y todos alcanzaron el éxito.
 

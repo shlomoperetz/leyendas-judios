@@ -1,4 +1,4 @@
-# THE SLAUGHTER OF THE INNOCENTS
+# La matanza de los inocentes
 
 El consejo de Bilam fue aceptado por el Faraón y los egipcios. Sabían que el Eterno paga medida por medida, y por ello creyeron que ahogar a los varones recién nacidos sería el medio más seguro de exterminar a los hebreos sin atraer daño alguno sobre sí mismos, pues el Eterno había jurado a Nóaj no volver a destruir el mundo por medio del agua. De tal suerte, suponían que quedarían exentos de castigo; mas en esto se equivocaban. En primer lugar, aunque el Eterno había jurado no traer un diluvio sobre los hombres, nada impedía traer a los hombres hacia un diluvio. Además, el juramento del Eterno se aplicaba a la humanidad entera, no a una sola nación. El fin de los egipcios fue que hallaron la muerte entre las olas del Mar Rojo. «Medida por medida»: así como ellos habían ahogado a los varones de los hijos de Israel, así fueron ellos ahogados.
 

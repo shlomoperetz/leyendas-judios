@@ -1,4 +1,4 @@
-# MOSES RECEIVES THE TORAH
+# Moshé recibe la Torá
 
 Cuando Moshé llegó al cielo, encontró al Eterno ocupado en adornar las letras con que estaba escrita la Torá, añadiéndoles pequeñas coronas ornamentales, y él observaba sin decir palabra. Dijo entonces el Eterno: «¿Acaso en tu tierra no conocen el saludo de paz?» Moshé respondió: «¿Conviene acaso que un siervo dirija la palabra a su el Eterno?» El Eterno replicó: «Al menos podrías haberme deseado éxito en Mi labor.» Entonces Moshé dijo: «Que se engrandezca el poder de mi el Eterno conforme has hablado.»
 

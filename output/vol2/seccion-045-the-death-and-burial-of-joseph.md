@@ -1,4 +1,4 @@
-# THE DEATH AND BURIAL OF JOSEPH
+# La muerte y sepultura de Yosef
 
 En su lecho de muerte, Yosef tomó juramento a sus hermanos, y les encomendó que ellos, a su vez, en sus propios lechos de muerte, tomasen igual juramento de sus hijos: que transportaran sus huesos a la Tierra de Israel cuando el Eterno los visitase y los hiciera subir de la tierra de Egipto. Dijo: «Yo, que soy un gobernante, pude llevar el cuerpo de mi padre a la Tierra Santa mientras aún estaba intacto. A vosotros tan solo os hago la petición de que llevéis mis huesos de aquí, y podéis enterrarlos en cualquier lugar de la Tierra de Israel, pues sé que la sepultura de los padres fue destinada a ser tumba únicamente de los tres Patriarcas y sus tres esposas.»
 

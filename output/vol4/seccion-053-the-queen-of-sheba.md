@@ -1,4 +1,4 @@
-# THE QUEEN OF SHEBA
+# La reina de Shevá
 
 Shelomó, conviene recordarlo, ejercía dominio no solo sobre los hombres, sino también sobre las bestias del campo, las aves del cielo, los demonios, los espíritus y los espectros de la noche. Conocía el lenguaje de todos ellos, y todos ellos comprendían su lenguaje.
 

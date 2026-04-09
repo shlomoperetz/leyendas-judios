@@ -1,4 +1,4 @@
-# VASTHI'S BANQUET
+# El banquete de Vashtí
 
 El banquete ofrecido por la reina Vashtí a las mujeres difería apenas del de Ajashverosh. Procuró emular el ejemplo de su esposo incluso en lo tocante a la exhibición de tesoros. Seis cámaras de almacén mostraba a diario a las mujeres que había convocado como huéspedes; más aún, no se arredró siquiera ante la idea de ataviarse con las vestiduras del Sumo Sacerdote. Las carnes y los manjares, al igual que en la mesa de Ajashverosh, eran palestinos, solo que en lugar de vino se servían licores y dulces.
 

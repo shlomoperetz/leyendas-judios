@@ -1,4 +1,4 @@
-# THE HOLY BOOK
+# El Libro Sagrado
 
 Gran sabiduría fue necesaria para construir el arca, que había de tener espacio para todos los seres de la tierra, incluidos los espíritus. Solo los peces quedaron exentos de tal provisión. Noaj adquirió la sabiduría necesaria del libro entregado a Adam por el ángel Raziel, en el cual se hallan consignados todos los saberes celestiales y terrenales.
 

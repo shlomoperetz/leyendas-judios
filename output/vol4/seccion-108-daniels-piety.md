@@ -1,4 +1,4 @@
-# DANIEL'S PIETY
+# La piedad de Daniel
 
 Las exequias de este gran rey distaron mucho de lo que cabría haber esperado, y he aquí la razón: durante los siete años que Nevujadnetzar pasó entre las bestias, su hijo Evil-Merodaj reinó en su lugar. Nevujadnetzar reapareció tras su período de penitencia y encarceló a su hijo de por vida. Cuando la muerte de Nevujadnetzar sobrevino realmente, Evil-Merodaj se negó a aceptar el homenaje que los nobles le rendían como nuevo rey, pues temía que su padre no hubiese muerto, sino que tan solo hubiera desaparecido como en la ocasión anterior, y que regresaría de nuevo. Para convencerlo de lo infundado de su aprensión, el cadáver de Nevujadnetzar, cruelmente mutilado por sus enemigos, fue arrastrado por las calles.
 

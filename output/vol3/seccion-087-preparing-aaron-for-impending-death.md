@@ -1,4 +1,4 @@
-# PREPARING AARON FOR IMPENDING DEATH
+# Preparando a Aharón para la muerte inminente
 
 Como señal de favor especial, el Eterno comunica a los piadosos el día de su muerte, para que puedan transmitir sus coronas a sus hijos. Pero el Eterno consideró particularmente apropiado preparar a Moshé y a Aharón para la muerte inminente, diciendo: «Estos dos hombres piadosos, a lo largo de toda su vida, nada hicieron sin consultarme, y Yo, por tanto, no los sacaré de este mundo sin informarles previamente.»
 

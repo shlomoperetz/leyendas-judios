@@ -1,4 +1,4 @@
-# THE CRIME OF THE BENJAMITES
+# El crimen de los benjaminitas
 
 Una parte del dinero que Delilá recibió de los señores filisteos como precio del secreto de Shimshón, se lo dio a su hijo Mijá, y este lo empleó para hacerse un ídolo. Este pecado resultaba tanto más imperdonable cuanto que Mijá debía su vida a un milagro obrado por Moshé. Durante los tiempos de la opresión egipcia, si los israelitas no entregaban el número prescrito de ladrillos, sus hijos eran utilizados como material de construcción. Tal habría sido el destino de Mijá, de no haber sido salvado de manera milagrosa. Moshé escribió el Nombre del Eterno y colocó las palabras sobre el cuerpo de Mijá. El niño muerto volvió a la vida, y Moshé lo extrajo de la pared de la que formaba parte. Mijá no se mostró digno del prodigio obrado en su favor. Ya antes de que los israelitas salieran de Egipto fabricó su ídolo, y fue él quien modeló el becerro de oro. En tiempos de Otniel el juez, estableció su morada a no más de tres millas del santuario de Shiló, y convenció al nieto de Moshé para que oficiase como sacerdote ante su ídolo.
 

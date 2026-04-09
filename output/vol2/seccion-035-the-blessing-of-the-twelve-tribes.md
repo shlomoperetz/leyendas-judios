@@ -1,4 +1,4 @@
-# THE BLESSING OF THE TWELVE TRIBES
+# La bendición de las doce tribus
 
 Cuando Yosef y sus dos hijos se apartaron de Yaakov, sus hermanos, envidiosos de las copiosas bendiciones otorgadas a los tres, dijeron: «El mundo entero ama al favorecido por la fortuna, y nuestro padre ha bendecido así a Yosef porque es gobernante de hombres.» Entonces habló Yaakov: «Los que buscan al Eterno no carecerán de bien alguno. Bendiciones tengo en abundancia para todos.»
 

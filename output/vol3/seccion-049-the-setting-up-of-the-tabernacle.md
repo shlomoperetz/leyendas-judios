@@ -1,4 +1,4 @@
-# THE SETTING UP OF THE TABERNACLE
+# La erección del Tabernáculo
 
 La obra del Tabernáculo avanzó con rapidez, pues todo estuvo listo en el mes de Kislev, mas no fue erigido sino tres meses después. El pueblo, ciertamente, ansiaba levantar el santuario de inmediato y consagrarlo, pero el Eterno ordenó a Moshé que aguardase hasta el primer día del mes de Nisán, porque ese era el día del nacimiento de Itzjak, y el Eterno deseaba que el gozo de la dedicación coincidiese con aquel día de alegría. Los burlones de Israel, desde luego, que no sabían esto, se mofaban de Moshé diciendo: «¡Cómo no! ¿Acaso es posible que la Shejiná repose sobre la obra de los hijos de Amram?»
 

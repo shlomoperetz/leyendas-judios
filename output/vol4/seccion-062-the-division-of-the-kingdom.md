@@ -1,4 +1,4 @@
-# THE DIVISION OF THE KINGDOM
+# La división del reino
 
 La división del reino en Yehudá e Israel, que tuvo lugar poco después de la muerte de Shelomó, había proyectado su sombra con antelación. Cuando Shelomó, al día siguiente de sus nupcias con la princesa egipcia, perturbó el curso regular del servicio del Templo por haberse quedado dormido hasta tarde con la cabeza sobre la almohada bajo la cual yacía la llave del Templo, Yarovam, acompañado de ochenta mil efraimitas, se presentó ante el rey y le pidió cuentas públicamente por su negligencia. El Eterno dirigió una reprensión a Yarovam: «¿Por qué reprochas a un príncipe de Israel? Por tu vida que habrás de probar su gobierno, y verás que no estás a la altura de sus responsabilidades».
 

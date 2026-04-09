@@ -1,4 +1,4 @@
-# ZEDEKIAH
+# Tzidkiyahu
 
 La ejecución de un rey y la deportación de otro no fueron sino preludios de la gran catástrofe nacional en tiempos de Tzidkiyahu: la destrucción del Templo y el exilio de todo el pueblo. Después de que Nevujadnetzar condujera a Yehoyajín y a una parte del pueblo al destierro, la compasión se apoderó de él respecto de los judíos, y preguntó si quedaba con vida algún otro hijo de Yoshiyahu. Solo Matanía había sobrevivido. Fue rebautizado como Tzidkiyahu, con la esperanza de que habría de engendrar hijos piadosos. En realidad, el nombre se convirtió en presagio de los desastres que habrían de acontecer en tiempos de este rey.
 

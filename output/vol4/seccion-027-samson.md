@@ -1,4 +1,4 @@
-# SAMSON
+# Shimshón
 
 El penúltimo de los jueces, Shimshón, no fue el más importante de entre ellos, pero sí el mayor héroe de aquel período y, exceptuando a Goliat, el más grande héroe de todos los tiempos. Era hijo de Manóaj, de la tribu de Dan, y de su esposa Zelalponit, de la tribu de Yehudá, y les nació en un tiempo en que ambos habían abandonado ya toda esperanza de tener hijos. El nacimiento de Shimshón constituye una ilustración elocuente de la miopía de los seres humanos. El juez Ibzán no había invitado a Manóaj ni a Zelalponit a ninguno de los ciento veinte banquetes celebrados en honor del matrimonio de sus sesenta hijos, festividades que tuvieron lugar tanto en su propia casa como en la de los suegros, pues consideraba que «la mula estéril» jamás estaría en posición de corresponder a su cortesía. Resultó que los padres de Shimshón fueron bendecidos con un hijo extraordinario, mientras que Ibzán vio morir a sus sesenta hijos durante el curso de su propia vida.
 

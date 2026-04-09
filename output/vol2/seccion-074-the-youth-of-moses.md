@@ -1,4 +1,4 @@
-# THE YOUTH OF MOSES
+# La juventud de Moshé
 
 Un día —fue después de que hubiese crecido y dejado atrás los años de la infancia— Moshé se dirigió a la tierra de Goshen, donde moraban los hijos de Israel. Allí contempló las cargas bajo las cuales gemía su pueblo, e indagó por qué tan pesada servidumbre había sido impuesta sobre ellos. Los israelitas le relataron cuanto había acontecido, le refirieron el cruel edicto que Paró había promulgado poco antes de su nacimiento, y le contaron los perversos consejos que Bilam había dado contra ellos y contra su propia persona cuando no era más que un niño pequeño y se había puesto la corona de Paró sobre la cabeza. La ira de Moshé se encendió contra el pérfido consejero, y trató de idear medios para dejarlo fuera de juego. Pero Bilam, al tener noticia de su animadversión, huyó de Egipto con sus dos hijos y se encaminó a la corte de Kikanos, rey de Etiopía.
 

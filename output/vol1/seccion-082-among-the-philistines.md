@@ -1,4 +1,4 @@
-# AMONG THE PHILISTINES
+# Entre los filisteos
 
 La destrucción de Sodoma impulsó a Avraham a emprender viaje hacia Guerar. Acostumbrado a dispensar hospitalidad a viajeros y caminantes, ya no se sentía a gusto en una comarca donde todo tránsito había cesado a causa de las ciudades arruinadas. Había además otra razón para que Avraham abandonase aquel lugar: las gentes hablaban demasiado acerca del turbio episodio con las hijas de Lot.
 

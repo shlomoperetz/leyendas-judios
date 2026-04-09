@@ -1,4 +1,4 @@
-# ENCOUNTER WITH GOLIATH
+# El encuentro con Goliat
 
 David no gozó por mucho tiempo de la holgura de la vida cortesana. La actitud agresiva asumida por Goliat lo impulsó a presentarse en el frente. Fue un curioso azar el que designó a David como verdugo de Goliat, quien estaba ligado a él por vínculos de sangre. Goliat, como se recordará, era hijo de la moabita Orpá, cuñada de Rut, ancestro de David, y asimismo hermana suya, pues ambas habían sido hijas del rey moabita Eglón. David y Goliat diferían tanto entre sí como sus respectivas abuelas, pues en contraste con Rut, la piadosa y devota conversa al judaísmo, Orpá había llevado una vida de infamia indecible. Su hijo Goliat era objeto de escarnio, llamado «el hijo de cien padres y una sola madre». Mas el Eterno no deja nada sin recompensa, ni siquiera entre los malvados. En pago por los cuarenta pasos que Orpá acompañó a su suegra Noemí, a Goliat el filisteo, su hijo, le fue concedido exhibir su fuerza y destreza durante cuarenta días, y en pago por las cuatro lágrimas que Orpá derramó al separarse de su suegra, le fue otorgado el privilegio de engendrar cuatro hijos gigantes.
 

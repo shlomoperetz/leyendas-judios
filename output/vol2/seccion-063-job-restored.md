@@ -1,4 +1,4 @@
-# JOB RESTORED
+# La restauración de Job
 
 Tras padecer un dolor septuplicado durante siete años, Iyov fue restituido a la plenitud de sus fuerzas. Junto con sus tres amigos regresó a la ciudad, y los habitantes celebraron una fiesta en su honor y para gloria del Eterno. Todos sus antiguos amigos volvieron a reunirse con él, y retomó su antigua ocupación: el cuidado de los pobres, para lo cual obtuvo los medios de la gente de su entorno. Les dijo: «Dadme, cada uno de vosotros, una oveja para vestir a los menesterosos, y cuatro dracmas de plata u oro para sus restantes necesidades». El Eterno bendijo a Iyov, y en pocos días su riqueza se había duplicado con respecto a cuanto poseía antes de que la desgracia lo alcanzara. Habiendo muerto Zitidos durante los años de sus tribulaciones, tomó por segunda esposa a Diná, hija de Yaakov, y ella le dio siete hijos y tres hijas. Nunca había tenido más de una esposa a la vez, pues solía decir: «Si la intención hubiera sido que Adam tuviese diez esposas, el Eterno se las habría dado. Solo una esposa le fue concedida, con lo cual Eterno indicó que debía tener una sola, y por eso una sola esposa me basta también a mí».
 

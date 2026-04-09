@@ -1,4 +1,4 @@
-# THE THRONE OF SOLOMON
+# El trono de Salomón
 
 Junto al Templo, en magnificencia, fue el trono de Shelomó lo que perpetuó el nombre y la fama del sabio rey. Nadie antes de él ni nadie después de él pudo producir semejante obra de arte, y cuando los reyes, sus vasallos, contemplaron la magnificencia del trono, se postraron y alabaron al Eterno. El trono estaba revestido de oro fino de Ofir, engastado de berilos, incrustado de mármol y adornado con esmeraldas, rubíes, perlas y toda suerte de piedras preciosas. En cada uno de sus seis escalones había dos leones de oro y dos águilas de oro, un león y un águila a la izquierda, y un león y un águila a la derecha, dispuestos los pares frente a frente, de modo que la garra derecha del león quedaba frente al ala izquierda del águila, y su garra izquierda frente al ala derecha del águila. El asiento real se hallaba en lo alto, y era de forma circular.
 

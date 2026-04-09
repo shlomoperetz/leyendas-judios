@@ -1,4 +1,4 @@
-# THE FIRST JUDGE
+# El primer juez
 
 Tras la muerte de Yehoshúa, los hijos de Israel consultaron al Eterno si debían subir a combatir contra los cananeos. Se les dio esta respuesta: «Si vuestro corazón es puro, salid al combate; mas si vuestros corazones están manchados de pecado, absteneos.» Preguntaron además cómo poner a prueba el corazón del pueblo. El Eterno les ordenó echar suertes y apartar a quienes la suerte señalara, pues ellos serían los pecadores de entre los suyos. Y cuando el pueblo suplicó al Eterno que les diera un guía y un caudillo, un ángel respondió: «Echad suertes en la tribu de Calev.» La suerte designó a Kenaz, y fue nombrado príncipe sobre Israel.
 

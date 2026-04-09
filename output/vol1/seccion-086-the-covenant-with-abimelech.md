@@ -1,4 +1,4 @@
-# THE COVENANT WITH ABIMELECH
+# El pacto con Avimélek
 
 Tras una estancia de veintiséis años en la tierra de los filisteos, Avraham partió de allí y se estableció en las cercanías de Hebrón. Allí lo visitó Avimélej acompañado de veinte de sus magnates, quienes le solicitaron que concertase una alianza con los filisteos.
 

@@ -1,4 +1,4 @@
-# THE WOOING OF REBEKAH
+# El cortejo de Rivká
 
 Acompañado de diez hombres, montados sobre diez camellos cargados de joyas y presentes, Eliézer se encaminó hacia Jarán bajo la escolta de dos ángeles: uno designado para custodiar a Eliézer, y el otro para custodiar a Rivká.
 

@@ -1,4 +1,4 @@
-# EVE'S STORY OF THE FALL
+# El relato de Javá sobre la caída
 
 Después de que fui creada, el Eterno dividió el Paraíso y todos los animales que en él había entre Adam y yo. El este y el norte fueron asignados a Adam, junto con los animales machos. Yo fui señora del oeste y del sur y de todos los animales hembras. Satán, escocido por la deshonra de haber sido expulsado de la hueste celestial, resolvió provocar nuestra ruina y vengarse de quien había causado su desdicha. Ganó a la serpiente para su causa y le hizo ver que antes de la creación de Adam los animales podían disfrutar de cuanto crecía en el Paraíso, y que ahora estaban limitados a las malas hierbas. Expulsar a Adam del Paraíso redundaría, pues, en beneficio de todos. La serpiente se resistió, pues temía la ira del Eterno. Pero Satán apaciguó sus temores y le dijo: «Sé tú mi vaso, y yo hablaré una palabra a través de tu boca con la cual lograrás seducir al hombre».
 

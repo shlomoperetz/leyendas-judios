@@ -1,4 +1,4 @@
-# THE STAR IN THE EAST
+# La estrella en el oriente
 
 Téraj había sido alto funcionario en la corte de Nimrod, y gozaba de gran estima ante el rey y su séquito. Le nació un hijo al que llamó Avram, pues el rey lo había elevado a una posición encumbrada. En la noche del nacimiento de Avraham, los astrólogos y los sabios de Nimrod acudieron a la casa de Téraj, y comieron y bebieron, y se regocijaron con él aquella noche. Al abandonar la casa, alzaron los ojos hacia el cielo para contemplar las estrellas, y vieron, y he aquí que una gran estrella venía del oriente y cruzó los cielos de parte a parte y devoró las cuatro estrellas en los cuatro confines. Todos quedaron asombrados ante la visión, mas comprendieron el asunto y conocieron su significado. Se dijeron unos a otros: «Esto solo puede presagiar que el niño nacido a Téraj esta noche crecerá y será fecundo, y se multiplicará y poseerá toda la tierra, él y sus hijos para siempre, y él y su simiente abatirán a grandes reyes y heredarán sus tierras.»
 

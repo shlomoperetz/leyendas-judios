@@ -1,4 +1,4 @@
-# THE FOUR FRIENDS
+# Los cuatro amigos
 
 Los amigos de Iyov vivían en lugares distintos, a distancias de trescientas millas uno del otro. Sin embargo, todos fueron informados al mismo tiempo de la desgracia de su amigo, y de esta manera: cada uno de ellos tenía los retratos de los demás engastados en su corona, y en cuanto alguno de ellos sufría un revés, ello se manifestaba en su imagen. Así supieron los amigos de Iyov simultáneamente de su desgracia, y se apresuraron a acudir en su auxilio.
 

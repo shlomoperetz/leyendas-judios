@@ -1,4 +1,4 @@
-# NAPHTALI'S DREAMS OF THE DIVISION OF THE TRIBES
+# Los sueños de Naftalí sobre la división de las tribus
 
 En el año ciento treinta y dos de su vida, Naftalí invitó a todos sus hijos a un banquete. A la mañana siguiente, cuando despertó, les anunció que estaba muriendo, mas ellos no quisieron creerle. Él, sin embargo, alabó al Eterno y les aseguró de nuevo que su muerte había de sobrevenir tras el banquete del día anterior. Entonces dirigió a sus hijos sus últimas palabras:
 

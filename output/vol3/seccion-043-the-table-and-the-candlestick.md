@@ -1,4 +1,4 @@
-# THE TABLE AND THE CANDLESTICK
+# La mesa y el candelabro
 
 Mientras que el número de querubines fue el mismo en el Templo que en el Tabernáculo, Shelomó, en cambio, hizo disponer diez mesas en el Templo en lugar de la única que había labrado Moshé. Ello se debía a que una sola mesa bastaba para proveer sustento a Israel mientras se alimentaban del maná en el desierto; mas como la demanda de alimento fue mayor una vez que se asentaron en la Tierra Prometida, Shelomó mandó colocar diez mesas. Sin embargo, también en el Templo conservó la mesa de Moshé su antigua preeminencia, pues solo sobre ella se depositaba el pan de la proposición, y ocupaba el centro, en tanto que las mesas fabricadas por Shelomó se disponían cinco al sur y cinco al norte. Porque del sur provienen «los rocíos de bendición y las lluvias de abundancia», mientras que todo mal procede del norte; por ello dijo Shelomó: «Las mesas del lado sur harán descender sobre la tierra las lluvias de abundancia y los rocíos de bendición, y las mesas del lado norte mantendrán apartado todo mal de Israel.»
 

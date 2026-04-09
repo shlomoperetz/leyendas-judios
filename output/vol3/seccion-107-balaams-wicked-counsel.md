@@ -1,4 +1,4 @@
-# BALAAM'S WICKED COUNSEL
+# El perverso consejo de Bilam
 
 Aunque Bilam no había logrado cumplir el deseo de Balak y maldecir a Israel, no se marchó de su presencia sin antes darle consejo sobre cómo podría acarrear la ruina al pueblo, diciéndole: «El Dios de este pueblo aborrece la lujuria; mas ellos son muy ávidos de poseer vestiduras de lino. Levanta, pues, tiendas, y en sus entradas haz que mujeres ancianas ofrezcan tales artículos en venta. Indúcelos de este modo a penetrar en el interior de las tiendas, donde los sorprenderán jóvenes rameras que los seducirán hacia la impudicia, de suerte que el Eterno los castigue por su pecado.»
 

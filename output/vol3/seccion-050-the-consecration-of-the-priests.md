@@ -1,4 +1,4 @@
-# THE CONSECRATION OF THE PRIESTS
+# La consagración de los sacerdotes
 
 Antes de que el santuario y sus utensilios fueran consagrados para el servicio, fueron ungidos con aceite sagrado. En aquella ocasión tuvo lugar el milagro de que doce lugs de aceite bastaron no solo para ungir el santuario y sus utensilios, y a Aarón y sus dos hijos durante los siete días de su consagración, sino que con ese mismo aceite fueron ungidos todos los sucesores de Aarón en el cargo de Sumo Sacerdote, así como varios reyes, hasta los días de Josías.
 

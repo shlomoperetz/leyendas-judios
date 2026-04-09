@@ -1,4 +1,4 @@
-# THE PUNISHMENT
+# El castigo
 
 Mientras Adam permanecía desnudo, buscando desesperadamente el modo de escapar de su vergüenza, el Eterno no se le apareció, pues no se ha de «procurar ver a un hombre en la hora de su deshonra». Aguardó hasta que Adam y Javá se hubieron cubierto con hojas de higuera. Mas aun antes de que el Eterno le hablase, Adam sabía lo que se avecinaba. Oyó a los ángeles anunciar: «el Eterno se encamina hacia los que moran en el Paraíso.» Oyó más todavía. Oyó lo que los ángeles se decían unos a otros acerca de su caída, y lo que le decían al Eterno. Con asombro exclamaron los ángeles: «¡Cómo! ¿Aún pasea por el Paraíso? ¿No ha muerto todavía?» A lo que el Eterno respondió: «Yo le dije: "El día que de él comieres, ciertamente morirás." Mas vosotros no sabéis qué clase de día quise decir: si uno de Mis días de mil años, o uno de vuestros días. Le daré uno de Mis días. Vivirá novecientos treinta años, y setenta dejará para sus descendientes.»
 

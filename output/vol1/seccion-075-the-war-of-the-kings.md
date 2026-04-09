@@ -1,4 +1,4 @@
-# THE WAR OF THE KINGS
+# La guerra de los reyes
 
 A su regreso de Egipto, las relaciones de Avraham con su propia familia se vieron perturbadas por circunstancias enojosas. Surgió discordia entre los pastores de su ganado y los pastores del ganado de Lot. Avraham proveía a sus rebaños de bozales, pero Lot no tomaba semejante precaución, y cuando los pastores que apacentaban los rebaños de Avraham recriminaron a los pastores de Lot por tal omisión, estos últimos respondieron: «Es cosa sabida que el Eterno dijo a Avraham: "A tu simiente daré esta tierra." Pero Avraham es un mulo estéril. Jamás tendrá hijos. Mañana morirá, y Lot será su heredero. Así pues, los rebaños de Lot no hacen sino consumir lo que pertenece a ellos o a su señor.» Mas el Eterno habló: «En verdad, dije a Avraham que daría la tierra a su simiente, pero solo después de que las siete naciones sean destruidas de sobre la tierra. Hoy los cananeos habitan en ella, y los perizeos. Todavía conservan el derecho de morada.»
 

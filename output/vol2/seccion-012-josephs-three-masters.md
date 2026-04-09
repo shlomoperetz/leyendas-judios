@@ -1,4 +1,4 @@
-# JOSEPH'S THREE MASTERS
+# Los tres amos de Yosef
 
 Por lo común, la única mercancía con que los ismaelitas cargaban sus camellos era brea y pieles de bestias. Mas por disposición providencial, en esta ocasión transportaban bolsas de perfumería en lugar de su habitual carga maloliente, a fin de que dulces fragancias envolvieran a Yosef en su viaje hacia Egipto. Aquellas sustancias aromáticas convenían bien a Yosef, cuyo cuerpo emanaba un olor agradable, tan grato y penetrante que el camino por el que viajaba quedaba impregnado de él, y a su llegada a Egipto el perfume de su cuerpo se extendió por toda la tierra, y las princesas reales, siguiendo el dulce aroma para hallar su origen, alcanzaron el lugar donde se encontraba Yosef. Aun después de su muerte, la misma fragancia emanaba de sus huesos, lo cual permitió a Moshé distinguir los restos de Yosef de todos los demás y cumplir el juramento de los hijos de Israel de sepultarlos en la Tierra Santa.
 

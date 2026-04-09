@@ -1,4 +1,4 @@
-# THE FALL OF HAMAN
+# La caída de Hamán
 
 Hamán no tardó en descubrir cuán desencaminado había estado al suponerse el hombre a quien el rey deseaba honrar. La orden del rey fue esta: «Apresúrate a ir a las cámaras del tesoro real; trae de allí un manto de púrpura fina, una vestidura de seda delicada, adornada con campanillas de oro y granadas, engastada de diamantes y perlas, y la gran corona de oro que me fue traída desde Macedonia el día en que ascendí al trono. Trae asimismo la espada y la cota de malla que me envió Etiopía, y los dos velos bordados con perlas que fueron obsequio de África. Después dirígete a los establos reales y saca de allí el caballo negro sobre el que cabalgué el día de mi coronación. ¡Con todas estas insignias de honor, ve en busca de Mordejai!»
 

@@ -1,4 +1,4 @@
-# THE ASCENSION OF ENOCH
+# La ascensión de Enoc
 
 No era esta la primera vez que Janoj ascendía al cielo. En una ocasión anterior, mientras aún moraba entre los hombres, le había sido concedido contemplar cuanto existe sobre la tierra y en los cielos. Sucedió que, estando dormido, una gran aflicción se apoderó de su corazón, y lloró en su sueño sin saber qué significaba aquella pena ni qué habría de acontecerle. Entonces se le aparecieron dos hombres de enorme estatura. Sus rostros resplandecían como el sol, y sus ojos eran como lámparas ardientes, y de sus labios brotaba fuego; sus alas eran más brillantes que el oro, sus manos más blancas que la nieve. Se detuvieron a la cabecera del lecho de Janoj y lo llamaron por su nombre. Él despertó de su sueño, se apresuró a postrarse ante ellos y quedó sobrecogido de terror. Y aquellos hombres le dijeron: «Ten buen ánimo, Janoj, no temas; el el Eterno eterno nos ha enviado a ti, y he aquí que hoy ascenderás con nosotros al cielo. Habla a tus hijos y a tus siervos, y que nadie te busque hasta que el Eterno te devuelva a ellos».
 

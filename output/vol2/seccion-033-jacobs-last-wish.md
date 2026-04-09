@@ -1,4 +1,4 @@
-# JACOB'S LAST WISH
+# El último deseo de Yaakov
 
 A cambio de los diecisiete años que Yaakov había consagrado a la crianza de Yosef, le fueron concedidos diecisiete años de residencia junto a su hijo predilecto en paz y dicha. Los malvados conocen primero la alegría y después el pesar; los justos han de sufrir primero para luego ser felices, pues bien está lo que bien acaba, y el Eterno permite a los piadosos que pasen los últimos años de su vida en la felicidad.
 

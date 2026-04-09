@@ -1,4 +1,4 @@
-# LESSONS IN HUMILITY
+# Lecciones de humildad
 
 Grande y poderoso como era Shelomó, sabio y justo, no faltaron ocasiones que le hicieran comprender la verdad de que ni el más sabio ni el más poderoso de los mortales puede permitirse la soberbia y la arrogancia.
 

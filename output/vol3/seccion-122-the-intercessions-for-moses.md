@@ -1,4 +1,4 @@
-# THE INTERCESSIONS FOR MOSES
+# Las intercesiones en favor de Moshé
 
 Cuando Moshé vio que el Eterno no prestaba oído a sus plegarias, trató de invocar la misericordia divina mediante las súplicas de otros. «Para todo hay un tiempo señalado, y un momento para cada propósito bajo el cielo.» Mientras el curso de los días de Moshé no había llegado a su fin, todo estaba en su poder, mas cuando su tiempo se hubo cumplido, buscó a alguien que apelara a la misericordia del Eterno en su favor. Se dirigió entonces a la Tierra y le dijo: «Oh, Tierra, te ruego que implores la misericordia del Eterno por mí. Quizá por tu causa se apiade Él de mí y me permita entrar en la tierra de Israel.» Pero la Tierra respondió: «Yo soy "desolada y vacía", y también yo "envejeceré como un vestido". ¿Cómo habría de atreverme a comparecer ante el Rey de reyes? No, tu destino es semejante al mío, pues "polvo eres, y al polvo has de volver".»
 

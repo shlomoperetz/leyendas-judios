@@ -1,4 +1,4 @@
-# MIRACLES WROUGHT FOR HEZEKIAH
+# Milagros obrados en favor de Jizkiyahu
 
 La destrucción del ejército asirio libró a Jizkiyahu tanto de un enemigo interior como de uno exterior, pues tenía adversarios en Jerusalén, entre ellos el sumo sacerdote Shevná. Shevná contaba con un séquito más numeroso en la ciudad que el propio rey, y tanto él como sus partidarios habían abogado por la paz con Sanjeriv. Con el apoyo de Yoaj, otro personaje influyente, Shevná había sujetado una carta a un dardo y lo había lanzado al campamento asirio. El contenido de la misiva era el siguiente: «Nosotros y todo el pueblo de Israel deseamos concertar la paz contigo, pero Jizkiyahu e Yeshayahu no lo permiten.» Tan poderosa era la influencia de Shevná que Jizkiyahu comenzó a dar muestras de ceder. De no haber sido por el profeta Yeshayahu, el rey se habría sometido a las exigencias de Sanjeriv.
 

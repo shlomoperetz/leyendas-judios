@@ -1,4 +1,4 @@
-# THE RETURN TO EGYPT
+# El regreso a Egipto
 
 Cuando Moshé finalmente cedió y se declaró dispuesto a ir a Egipto como mensajero del Eterno, su aceptación quedó aún condicionada a la promesa divina de cumplir todos sus deseos, y el Eterno le concedió cuanto pidió, salvo la inmortalidad y la entrada en la Tierra Santa. También apaciguó sus temores respecto al peligro que le acechaba de parte de sus antiguos enemigos Datán y Aviram, por cuya causa había tenido que huir de Egipto. Le dijo que ambos habían caído en la condición de hombres pobres e insignificantes, desprovistos de todo poder para causarle daño.
 

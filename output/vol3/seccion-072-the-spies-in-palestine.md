@@ -1,4 +1,4 @@
-# THE SPIES IN PALESTINE
+# Los espías en Palestina
 
 El vigésimo séptimo día de siván, Moshé envió a los espías desde Kadesh Barnea, en el desierto de Parán, y siguiendo sus instrucciones, se dirigieron primero al sur de Palestina, la parte más pobre de la Tierra Santa. Moshé obró como los mercaderes, que primero muestran las mercancías de menor calidad y después las mejores; así quiso Moshé que los espías contemplaran regiones cada vez más fértiles a medida que avanzaran por la tierra. Cuando llegaron a Hebrón, pudieron juzgar cuán bendita era la tierra que les había sido prometida, pues aunque Hebrón era el paraje más pobre de toda Palestina, era con todo muy superior a Zoán, la comarca más excelente de Egipto. Por ello, cuando los hijos de Jam edificaron ciudades en diversas tierras, fue Hebrón la que erigieron primero, en razón de su excelencia, y no Zoán, que construyeron en Egipto siete años después.
 

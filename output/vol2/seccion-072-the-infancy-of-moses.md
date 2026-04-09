@@ -1,4 +1,4 @@
-# THE INFANCY OF MOSES
+# La infancia de Moshé
 
 Durante dos años, el niño rescatado por la hija del Faraón permaneció junto a sus padres y parientes. Estos le dieron diversos nombres. Su padre lo llamó Heber, pues fue por causa de este niño que se había «reunido» de nuevo con su esposa. Su madre lo nombró Yekutiel, «porque —dijo— puse mi esperanza en el Eterno, y Él me lo devolvió». Para su hermana Miriam era Yéred, pues ella había «descendido» hasta la orilla del río para averiguar su destino. Su hermano Aarón lo llamó Abi Zanóaj, porque su padre, que había «apartado» a su madre, la había tomado de nuevo por causa del niño que habría de nacer. Su abuelo Kehat lo conocía como Abi Guedor, porque el Padre Celestial había «restaurado» la brecha en Israel al rescatarlo, refrenando así a los egipcios de arrojar al agua a los varones hebreos. Su nodriza lo llamó Abi Socó, pues había permanecido oculto en una «tienda» durante tres meses, escapando a la persecución de los egipcios. E Israel lo llamó Shemayá ben Netanel, porque en sus días el Eterno «escucharía» los gemidos del pueblo y los libraría de sus opresores, y por medio de él les «daría» Su propia ley.
 

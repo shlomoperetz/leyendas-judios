@@ -1,4 +1,4 @@
-# THE SICKNESS OF ADAM
+# La enfermedad de Adam
 
 Cuando Adam hubo vivido novecientos treinta años, una enfermedad se apoderó de él, y sintió que sus días llegaban a su fin. Convocó a todos sus descendientes y los reunió ante la puerta de la casa de oración en la que siempre había elevado sus plegarias al Eterno, para darles su última bendición. Su familia quedó atónita al encontrarlo postrado en el lecho de enfermedad, pues no sabían qué eran el dolor ni el sufrimiento. Creyeron que lo embargaba la nostalgia por los frutos del Paraíso, y que por carecer de ellos estaba abatido. Shet anunció su disposición a ir hasta las puertas del Paraíso y rogar al Eterno que permitiera a uno de Sus ángeles entregarle de aquellos frutos. Pero Adam les explicó qué son la enfermedad y el dolor, y que el Eterno se los había infligido como castigo por su pecado. Adam sufría con violencia; lágrimas y gemidos le eran arrancados. Javá sollozó y dijo: «Adam, señor mío, dame la mitad de tu enfermedad, que con gusto la soportaré. ¿No es acaso por causa mía que esto ha venido sobre ti? Por mi causa padeces dolor y angustia.»
 

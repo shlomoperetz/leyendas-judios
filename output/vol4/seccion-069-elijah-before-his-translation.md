@@ -1,4 +1,4 @@
-# ELIJAH BEFORE HIS TRANSLATION
+# Eliyahu antes de su traslación
 
 El relato bíblico del profeta Eliyahu, de su vida y su obra durante los reinados de Ajav y de su hijo Yoram, apenas ofrece una pálida idea de un personaje cuya historia comienza con la estancia de Israel en Egipto y solo habrá de concluir cuando Israel, bajo el liderazgo del Mashíaj, haya vuelto a establecer su morada en la Tierra de Israel.
 

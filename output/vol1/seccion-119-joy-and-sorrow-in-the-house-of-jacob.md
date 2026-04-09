@@ -1,4 +1,4 @@
-# JOY AND SORROW IN THE HOUSE OF JACOB
+# Gozo y aflicción en la casa de Yaakov
 
 Fue entonces, tomó el lecho de su madre Leá y lo colocó en la tienda de Yaakov en lugar del lecho de Bilhá.
 

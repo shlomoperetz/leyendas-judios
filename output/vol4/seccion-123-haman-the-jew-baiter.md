@@ -1,4 +1,4 @@
-# HAMAN THE JEW-BAITER
+# Hamán, el hostigador de judíos
 
 La conspiración de Bigtán y Téresh determinó al rey a no volver jamás a confiar la custodia de su persona a dos chambelanes. En adelante encomendaría su seguridad a un solo individuo, y designó a Hamán para el cargo. Fue aquel un acto de ingratitud hacia Mordejai, quien, como salvador del rey, tenía los más poderosos derechos sobre el puesto. (92) Pero Hamán poseía una ventaja considerable: era dueño de una enorme fortuna. Con la excepción de Córaj, había sido el hombre más rico que jamás hubiera vivido, pues se había apropiado de los tesoros de los reyes de Judá y del Templo. (93)
 

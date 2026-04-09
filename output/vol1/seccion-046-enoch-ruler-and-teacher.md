@@ -1,4 +1,4 @@
-# ENOCH, RULER AND TEACHER
+# Enoc, gobernante y maestro
 
 Después de que Janoj hubo vivido largo tiempo recluido de los hombres, oyó cierta vez la voz de un ángel que lo llamaba: «Janoj, Janoj, prepárate y abandona la casa y el lugar secreto en que te has mantenido oculto, y asume el dominio sobre los hombres, para enseñarles los caminos por los que han de andar y las obras que han de realizar, a fin de que caminen por las sendas del Eterno.»
 

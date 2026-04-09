@@ -1,4 +1,4 @@
-# OTHNIEL
+# Otniel
 
 Otniel fue un juez de naturaleza muy distinta. Sus contemporáneos decían que, antes de que se pusiera el sol de Yehoshúa, el sol de Otniel, su sucesor en la guía del pueblo, había aparecido ya en el horizonte. El verdadero nombre del nuevo líder era Yehudá; Otniel era uno de sus epítetos, como Yabetz era otro.
 

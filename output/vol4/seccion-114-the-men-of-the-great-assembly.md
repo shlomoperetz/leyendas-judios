@@ -1,4 +1,4 @@
-# THE MEN OF THE GREAT ASSEMBLY
+# Los hombres de la Gran Asamblea
 
 Al mismo tiempo que Ezra, o, para ser más precisos, bajo su dirección, la Gran Asamblea llevó a cabo sus benéficas actividades, las cuales sentaron los cimientos del judaísmo rabínico y constituyeron el eslabón vinculante entre el Profeta judío y el Sabio judío. Los grandes hombres que pertenecieron a aquella augusta asamblea lograron en una ocasión, por la eficacia de sus plegarias, echar mano a los seductores que inducían al pecado y confinarlos para impedir que siguieran causando daño. De este modo desterraron del mundo «el deseo de idolatría». Intentaron hacer lo mismo con «el deseo de lujuria». Pero este maligno adversario les advirtió que no acabaran con él, pues el mundo dejaría de existir sin su presencia. Durante tres días lo mantuvieron prisionero, mas luego se vieron obligados a soltarlo y dejarlo en libertad. Descubrieron que ni siquiera se podía conseguir un huevo, pues el apetito sexual había desaparecido del mundo. Con todo, no escapó del todo ileso: le emplastaron los ojos, y desde aquel momento dejó de inflamar las pasiones de los hombres contra sus parientes de sangre.
 

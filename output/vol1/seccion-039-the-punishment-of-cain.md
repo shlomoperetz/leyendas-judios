@@ -1,4 +1,4 @@
-# THE PUNISHMENT OF CAIN
+# El castigo de Caín
 
 La muerte de Abel fue la más cruel que pueda concebirse. Sin saber qué herida podía resultar mortal, Caín apedreó todas las partes de su cuerpo, hasta que una piedra le alcanzó en el cuello y le causó la muerte.
 

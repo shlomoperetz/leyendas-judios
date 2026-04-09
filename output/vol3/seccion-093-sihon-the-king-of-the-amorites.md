@@ -1,4 +1,4 @@
-# SIHON, THE KING OF THE AMORITES
+# Sijón, el rey de los amorreos
 
 La destrucción de quienes se ocultaban en las cuevas de la montaña de Arnón fue solo el comienzo de los prodigios que el Eterno obró en favor de Israel durante la conquista de la tierra. Fue también en Arnón donde Sijón, rey de los amorreos, y su pueblo, que apenas un mes después de la muerte de Aharón se habían lanzado contra Israel, fueron completamente aniquilados por ellos.
 

@@ -1,4 +1,4 @@
-# CENSOR AND AVENGER
+# Censor y vengador
 
 La solicitud y la compasión no agotan el retrato completo del carácter de Elías. Seguía siendo el censor severo e inexorable a quien Ajab había temido. Jamás perdió su antiguo celo por lo verdadero y lo bueno, como lo atestigua el hecho de que en cierta ocasión fulminó de muerte a un hombre por no haber cumplido sus devociones con la debida reverencia.
 

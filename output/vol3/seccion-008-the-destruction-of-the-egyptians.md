@@ -1,4 +1,4 @@
-# THE DESTRUCTION OF THE EGYPTIANS
+# La destrucción de los egipcios
 
 En el instante mismo en que el último de los israelitas pisó fuera del lecho del mar, el primero de los egipcios puso el pie en él, pero en ese mismo instante las aguas se precipitaron de vuelta a su lugar habitual, y todos los egipcios perecieron.
 

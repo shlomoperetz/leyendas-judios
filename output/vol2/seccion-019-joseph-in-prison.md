@@ -1,4 +1,4 @@
-# JOSEPH IN PRISON
+# Yosef en prisión
 
 A modo de castigo por haber calumniado a sus diez hermanos ante su padre, Yosef hubo de languidecer diez años en la prisión a la que las artimañas de otros calumniadores lo habían condenado a su vez. Mas, por otra parte, como había santificado el Nombre del Eterno ante el mundo con su castidad y su entereza, recibió su recompensa. La letra He, que aparece dos veces en el Nombre del Eterno, fue añadida a su nombre. Hasta entonces había sido llamado Yosef, pero desde entonces fue llamado también Yehossef.
 

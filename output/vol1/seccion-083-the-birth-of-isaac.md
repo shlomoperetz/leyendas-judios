@@ -1,4 +1,4 @@
-# THE BIRTH OF ISAAC
+# El nacimiento de Itzjak
 
 Cuando la plegaria de Avraham en favor de Avimélej fue escuchada y el rey de los filisteos sanó, los ángeles alzaron un gran clamor y se dirigieron al Eterno de esta manera: «¡Oh Señor del universo! Durante todos estos años Sara ha sido estéril, al igual que la esposa de Avimélej. Ahora Avraham ha orado ante Ti, y a la esposa de Avimélej le ha sido concedido un hijo. Justo y razonable es que Sara sea también recordada y se le conceda un hijo.» Estas palabras de los ángeles, pronunciadas el día de Rosh Hashaná, cuando las suertes de los hombres quedan determinadas en el cielo para el año entero, dieron su fruto. Apenas siete meses después, el primer día de Pésaj, nació Itzjak.
 

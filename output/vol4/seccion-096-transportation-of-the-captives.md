@@ -1,4 +1,4 @@
-# TRANSPORTATION OF THE CAPTIVES
+# El traslado de los cautivos
 
 Las órdenes de Nevujadnetzar eran apresurar a los cautivos por el camino hacia Babilonia sin detenerse ni hacer alto alguno. Temía que los judíos pudieran de otro modo hallar ocasión de suplicar la misericordia del Eterno, y Él, compasivo como es, los liberaría en el instante mismo en que hicieran teshuvá. (46) En consecuencia, no hubo pausa alguna en la marcha, hasta que alcanzaron el Éufrates. Allí se encontraban ya dentro de las fronteras del imperio de Nevujadnetzar, y este creyó que nada más tenía que temer.
 

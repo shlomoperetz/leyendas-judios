@@ -1,4 +1,4 @@
-# SATAN ACCUSES ABRAHAM
+# Satán acusa a Avraham
 
 A pesar de la pródiga hospitalidad que se practicaba en la casa de Avraham, sucedió una vez que un hombre pobre —o más bien un presunto pobre— fue despachado con las manos vacías, y esta fue la razón inmediata de la última de las pruebas de Avraham: el sacrificio de su hijo predilecto, Itzjak. Era el día en que Avraham celebraba el nacimiento de Itzjak con un gran banquete, al cual fueron invitados todos los magnates de la época junto con sus esposas. Satán, que siempre se presenta en los festines donde no participan los pobres y se mantiene alejado de aquellos a los que se invita a huéspedes menesterosos, se apareció en el banquete de Avraham disfrazado de mendigo que pedía limosna a la puerta. Había notado que Avraham no había invitado a ningún pobre, y supo que aquella casa era el lugar indicado para él.
 

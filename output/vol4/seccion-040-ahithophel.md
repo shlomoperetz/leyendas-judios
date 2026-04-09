@@ -1,4 +1,4 @@
-# AHITHOPHEL
+# Ajitofel
 
 Entre los cortesanos y servidores de David, un lugar prominente lo ocupa su consejero Ajitófel, con quien el rey estaba vinculado por lazos familiares, pues Bat-Sheva era nieta suya. La sabiduría de Ajitófel era sobrenatural, ya que sus consejos siempre coincidían con los oráculos emitidos por el Urim y el Tumim, y tan grande como era su sabiduría lo era también su erudición. Por ello, David no dudó en someterse a su instrucción, aun cuando Ajitófel era un hombre muy joven, que al momento de su muerte no contaba más de treinta y tres años de edad. Lo único que le faltaba era una piedad sincera, y esto fue precisamente lo que a la postre causó su ruina, pues lo indujo a tomar parte en la rebelión de Avshalom contra David. Así perdió incluso su porción en el mundo venidero.
 

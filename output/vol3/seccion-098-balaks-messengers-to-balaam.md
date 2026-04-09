@@ -1,4 +1,4 @@
-# BALAK'S MESSENGERS TO BALAAM
+# Los mensajeros de Balak a Bilam
 
 Balak envió entonces mensajeros a Bilam con el siguiente mensaje: «No pienses que solicito tu ayuda contra Israel exclusivamente en mi propio interés, ni que solo de mí puedes esperar honra y recompensa por tus servicios. Ten por seguro que todas las naciones habrán de honrarte, que cananeos y egipcios por igual se postrarán a tus pies cuando hayas destruido a Israel. Este pueblo que salió de Egipto ha cubierto de tierra a Sijón y a Og, los ojos que custodiaban toda la tierra, y ahora se disponen a destruirnos también a nosotros. No son, en verdad, héroes más grandes que los nuestros, ni sus huestes más numerosas que las nuestras, pero vencen en cuanto abren sus labios en plegaria, y eso nosotros no podemos hacerlo. Intenta, pues, ver si acaso puedo ir convirtiéndome poco a poco en su señor, de modo que al menos pueda llevar a la destrucción a cierto número de ellos, aunque no sea más que una vigésima cuarta parte.»
 

@@ -1,4 +1,4 @@
-# HIRAM
+# Jirám
 
 Jiram, rey de Tzor, fue contemporáneo de Nabucodonosor, y en muchos aspectos se le asemejaba. También él se tenía por un dios, y procuraba que los hombres creyeran en su divinidad mediante los cielos artificiales que se fabricó para sí. En el mar erigió cuatro pilares de hierro, sobre los cuales construyó siete cielos, cada uno quinientos codos más grande que el inferior. El primero era una placa de cristal de quinientos codos cuadrados, y el segundo una placa de hierro de mil codos cuadrados. El tercero, de plomo, separado del segundo por canales, contenía enormes rocas redondas que, al rodar sobre el hierro, producían un sonido semejante al trueno. El cuarto cielo era de bronce, el quinto de cobre, el sexto de plata y el séptimo de oro, todos separados entre sí por canales. En el séptimo, de tres mil quinientos codos de extensión, había dispuesto diamantes y perlas que manipulaba de modo que produjeran el efecto de destellos y láminas de relámpago, mientras las piedras de abajo imitaban el fragor del trueno.
 

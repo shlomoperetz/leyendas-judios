@@ -1,4 +1,4 @@
-# THE DEATH OF EVE
+# La muerte de Javá
 
 El intervalo entre la muerte de Adam y la suya propia lo pasó Javá llorando. La angustiaba en particular no saber qué había sido del cuerpo de Adam, pues nadie salvo Shet había permanecido despierto mientras el ángel le daba sepultura. Cuando la hora de su muerte se aproximó, Javá suplicó ser enterrada en el mismísimo lugar donde descansaban los restos de su esposo. Oró ante el Eterno: «¡el Eterno de todos los poderes! No apartes a Tu sierva del cuerpo de Adam, del cual Tú me tomaste, de cuyos miembros Tú me formaste. Permite que yo, mujer indigna y pecadora, entre en su morada. Así como estuvimos juntos en el Paraíso, sin que uno fuera separado del otro; así como juntos fuimos tentados a transgredir Tu ley, sin que uno fuera separado del otro, así, oh, Eterno, no nos separes ahora.» Al final de su plegaria añadió esta petición, alzando los ojos al cielo: «¡Señor del mundo! ¡Recibe mi espíritu!», y entregó su alma al Eterno.
 

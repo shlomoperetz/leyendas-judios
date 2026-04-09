@@ -1,4 +1,4 @@
-# MOSES PRAYS FOR DEATH
+# Moshé suplica la muerte
 
 Moshé tenía aún muchas otras bendiciones para cada una de las tribus, pero al percibir que su hora se acercaba a su fin, las reunió todas en una sola bendición, diciendo: «¡Dichoso tú, Israel! ¿Quién como tú, pueblo salvado por el Eterno, escudo de tu amparo y espada de tu gloria?» Con estas palabras respondió al mismo tiempo a una pregunta que Israel le había formulado, diciendo: «Dinos, Moshé, maestro nuestro, ¿cuál es la bendición que el Eterno nos concederá en el mundo venidero?» Él respondió: «No me es posible describírosla, mas lo único que puedo decir es: ¡dichosos vosotros, que tal cosa os está decretada!» Moshé al mismo tiempo suplicó al Eterno que en el mundo venidero restituyese a Israel el arma celestial que les había arrebatado tras la adoración del Becerro de Oro. Dijo el Eterno: «Juro que se la restituiré.»
 

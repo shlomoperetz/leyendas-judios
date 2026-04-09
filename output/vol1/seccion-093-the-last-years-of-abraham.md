@@ -1,4 +1,4 @@
-# THE LAST YEARS OF ABRAHAM
+# Los últimos años de Avraham
 
 Rivká vio por primera vez a Itzjak cuando este venía por el camino de Beer Lajai Roí, la morada de Hagar, adonde se había dirigido tras la muerte de su madre con el propósito de reunir a su padre con Hagar, llamada también Keturá.
 

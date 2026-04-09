@@ -1,4 +1,4 @@
-# THE GREAT LAMENT
+# El gran lamento
 
 A su regreso de Anatot, Yirmeyahu divisó a lo lejos una columna de humo que se elevaba serpenteante desde el monte del Templo, y su espíritu se llenó de alegría. Pensó que los judíos se habían arrepentido de sus pecados y estaban ofreciendo incienso. Pero una vez dentro de las murallas de la ciudad, conoció la verdad: que el Templo había caído presa del fuego. Abrumado por el dolor, clamó: «¡Oh, Eterno, Tú me sedujiste, y yo me dejé seducir; Tú me enviaste fuera de Tu casa para poder destruirla!»
 

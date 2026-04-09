@@ -1,4 +1,4 @@
-# THE FIRST COMMANDMENT
+# El primer mandamiento
 
 La primera palabra del Eterno en el Sinaí fue *Anojí*, «Soy Yo». No era una palabra hebrea, sino una palabra egipcia lo primero que Israel escuchó de boca del Eterno. Los trató como aquel rey que, al recibir a su hijo de regreso tras una larga estancia allende los mares, le habló en la lengua que el hijo había adquirido en tierra extranjera. Así se dirigió el Eterno a Israel en egipcio, pues era la lengua que hablaban. Al mismo tiempo, Israel reconoció en aquella palabra *Anojí* que era el Eterno quien les hablaba. Porque cuando Yaakov reunió a sus hijos en torno a su lecho de muerte, les advirtió que fuesen celosos de la gloria del Eterno y les confió los secretos que el Eterno habría de revelarles en lo venidero con la palabra *Anojí*. Dijo: «Con la palabra *Anojí* se dirigió a mi abuelo Avraham; con la palabra *Anojí* se dirigió a mi padre Itzjak, y con la palabra *Anojí* se dirigió a mí. Sabed, pues, que cuando Él venga a vosotros y así os hable, será Él, y no de otro modo».
 

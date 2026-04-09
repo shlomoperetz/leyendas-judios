@@ -1,4 +1,4 @@
-# JACOB RECEIVES THE GLAD TIDINGS
+# Yaakov recibe las gratas nuevas
 
 Con ánimo jubiloso emprendieron los hijos de Yaakov el camino de regreso a la tierra de Canaán, mas al llegar a sus confines se dijeron unos a otros: «¿Qué haremos? Si nos presentamos ante nuestro padre y le decimos que Yosef vive, se sobresaltará en gran manera y no estará dispuesto a creernos.» Además, la última instrucción que Yosef les había dado era que tuviesen cuidado de no sobresaltar a su padre con las dichosas nuevas.
 

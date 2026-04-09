@@ -1,4 +1,4 @@
-# DANIEL UNDER THE PERSIAN KINGS
+# Daniel bajo los reyes persas
 
 Daniel abandonó a Belshasar y huyó a Shushtar, donde fue recibido con benevolencia por Ciro, quien le prometió hacer que los utensilios del Templo fuesen devueltos a Jerusalén, siempre que Daniel rogase al Eterno que le concediese el triunfo en su guerra contra el rey de Mosul. El Eterno escuchó favorablemente la plegaria de Daniel, y Ciro fue fiel a su promesa.
 

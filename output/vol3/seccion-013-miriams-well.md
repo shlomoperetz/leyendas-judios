@@ -1,4 +1,4 @@
-# MIRIAM'S WELL
+# El pozo de Miriam
 
 Aliviados como estaban de todas las preocupaciones del sustento gracias al don del maná, era manifiesto deber de los israelitas consagrarse exclusivamente al estudio de la Torá. Cuando, pues, aflojaron en el cumplimiento de este deber, el castigo en forma de escasez de agua se abatió de inmediato sobre ellos. Esta fue la primera vez que padecieron verdaderamente tal carencia, pues en Mará no había sido más que la alarma de que semejante necesidad pudiera sobrevenirles lo que los había movido a murmurar y quejarse. En su angustia, una vez más lanzaron reproches irrazonables contra su guía y disputaron con él, diciendo: «¿A qué viene esto, hijos, que nos has sacado de Egipto para matarnos a nosotros, a nuestros hijos y a nuestro ganado de sed?» Moshé respondió: «Cada vez que disputáis conmigo, tentáis al Eterno; pero el Eterno obra prodigios y hazañas admirables en vuestro favor cada vez que contendéis conmigo, para que Su nombre resuene en gloria por todo el mundo.»
 

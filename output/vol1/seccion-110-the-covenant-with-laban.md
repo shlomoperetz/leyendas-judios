@@ -1,4 +1,4 @@
-# THE COVENANT WITH LABAN
+# El pacto con Laván
 
 Yaakov partió y cruzó el Éufrates, y dirigió su rostro hacia Guilad, pues el espíritu santo le había revelado que el Eterno llevaría auxilio allí a sus hijos en los días de Yiftaj. Entretanto, los pastores de Jarán advirtieron que el pozo, que se había mantenido rebosante desde la llegada de Yaakov a su tierra, se secó de pronto. Durante tres días vigilaron y esperaron, con la esperanza de que las aguas retornaran con la misma abundancia de antes. Decepcionados, finalmente informaron a Laván de la desgracia, y este adivinó al instante que Yaakov había partido de allí, pues sabía que la bendición había sido concedida a Jarán únicamente en virtud de los méritos de su yerno.
 

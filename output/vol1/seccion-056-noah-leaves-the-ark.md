@@ -1,4 +1,4 @@
-# NOAH LEAVES THE ARK
+# Nóaj abandona el Arca
 
 Aunque la tierra recobró su antigua forma al término del año de castigo, Noaj no abandonó el arca hasta recibir la orden del Eterno de salir de ella. Se dijo a sí mismo: «Así como entré en el arca por mandato del Eterno, solo por Su mandato la abandonaré.» Sin embargo, cuando el Eterno ordenó a Noaj que saliera del arca, este se negó, pues temía que después de haber vivido algún tiempo en tierra firme y engendrado hijos, el Eterno trajera otro diluvio. Por ello no quiso salir del arca hasta que el Eterno juró que jamás volvería a castigar la tierra con un diluvio.
 

@@ -1,4 +1,4 @@
-# JOSEPH THE SLAVE OF POTIPHAR
+# Yosef, esclavo de Potifar
 
 Cuando Yosef fue vendido como esclavo a los ismaelitas, guardó silencio por respeto a sus hermanos y no reveló a sus amos que era hijo de Yaakov, hombre grande y poderoso. Incluso cuando llegó ante los midianitas en compañía de los ismaelitas, y aquellos le preguntaron por su linaje, siguió diciendo que era un esclavo, únicamente para no avergonzar a sus hermanos. Mas el más distinguido de los midianitas lo reprendió, diciendo: «Tú no eres esclavo; tu apariencia te delata», y lo amenazó de muerte si no confesaba la verdad. Yosef, sin embargo, se mantuvo firme y no quiso obrar con deslealtad hacia sus hermanos.
 

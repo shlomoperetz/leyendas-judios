@@ -1,4 +1,4 @@
-# A HERALD OF DEATH
+# Un heraldo de la muerte
 
 Cuando se acercó el día de la muerte de Avraham, el Eterno dijo a Mijael: «Levántate y ve a Avraham, y dile: Has de partir de esta vida», para que pusiera en orden su casa antes de morir. Y Mijael fue y llegó ante Avraham, y lo halló sentado frente a sus bueyes de labranza. Avraham, al ver a Mijael, mas sin saber quién era, lo saludó y le dijo: «Siéntate un momento, y ordenaré que traigan una bestia, e iremos a mi casa para que descanses conmigo, pues ya declina la tarde, y por la mañana te levantarás y marcharás adonde quieras». Y Avraham llamó a uno de sus siervos y le dijo: «Ve y tráeme una bestia para que el forastero monte sobre ella, pues viene fatigado del camino». Pero Mijael dijo: «Yo me abstengo de montar jamás sobre bestia de cuatro patas; caminemos, pues, hasta llegar a la casa».
 

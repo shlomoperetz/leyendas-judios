@@ -1,4 +1,4 @@
-# THE FAITHFUL SHEPHERD
+# El pastor fiel
 
 Cuando Yitró entregó a su hija Tziporá a Moshé por esposa, dijo a su futuro yerno: «Sé que tu padre Yaakov tomó a sus esposas, las hijas de Laván, y se marchó con ellas contra la voluntad de su padre. Ahora júrame que tú no harás lo mismo conmigo». Y Moshé juró no partir sin su consentimiento, y permaneció junto a Yitró, quien lo hizo pastor de sus rebaños. Por el modo en que cuidaba las ovejas, el Eterno vio en él la aptitud para ser pastor de Su pueblo, pues el Eterno jamás confía un cargo excelso a un hombre sin haberlo probado antes en las cosas pequeñas. Así fueron puestos a prueba Moshé y David como pastores de rebaños, y solo después de haber demostrado su capacidad en tal oficio les otorgó el dominio sobre los hombres.
 

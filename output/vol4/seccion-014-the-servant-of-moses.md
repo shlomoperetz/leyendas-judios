@@ -1,4 +1,4 @@
-# THE SERVANT OF MOSES
+# El siervo de Moshé
 
 La historia temprana del primer conquistador judío guarda, en ciertos aspectos, semejanza con la historia temprana del primer legislador judío. Moshé fue rescatado de una tumba acuática y criado en la corte de Egipto. Yehoshúa, siendo aún lactante, fue tragado por una ballena y, cosa asombrosa de referir, no pereció. En un punto distante de la costa, el monstruo lo expulsó de sus fauces sin daño alguno. Fue hallado por transeúntes compasivos y creció ignorante de su linaje. El gobierno le asignó el oficio de verdugo. Quiso la suerte que hubiera de ejecutar a su propio padre. Según la ley de aquella tierra, la esposa del muerto correspondía a su ejecutor, y Yehoshúa estuvo a punto de sumar al parricidio otro crimen igualmente atroz. Fue salvado por una señal milagrosa. Cuando se acercó a su madre, la leche manó de sus pechos. Sus sospechas se despertaron, y mediante las indagaciones que emprendió acerca de su origen, la verdad quedó al descubierto.
 

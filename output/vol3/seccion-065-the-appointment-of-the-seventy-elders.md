@@ -1,4 +1,4 @@
-# THE APPOINTMENT OF THE SEVENTY ELDERS
+# El nombramiento de los setenta ancianos
 
 La penosa situación de Moshé en aquella ocasión se debía en parte al hecho de que hubo de afrontar solo los murmullos y las quejas del pueblo, sin la asistencia habitual de los setenta ancianos. Desde el éxodo de Egipto, los setenta ancianos del pueblo habían estado siempre a su lado, pero estos habían perecido recientemente por el fuego caído del cielo en Taberá, de modo que ahora se hallaba completamente solo. Tal muerte sobrevino a los ancianos porque, al igual que Nadav y Avihú, no habían mostrado la debida reverencia al ascender al monte Sinaí el día de la revelación, cuando, ante la visión divina, se condujeron de manera impropia. Como Nadav y Avihú, los ancianos habrían recibido castigo instantáneo por su ofensa, de no haber sido porque el Eterno no quiso empañar el día gozoso de la revelación con la muerte de aquellos. Mas hubieron de pagar la pena pese a todo: Nadav y Avihú, al ser consumidos por el fuego en la consagración del Tabernáculo, y los ancianos de igual modo, en Taberá.
 

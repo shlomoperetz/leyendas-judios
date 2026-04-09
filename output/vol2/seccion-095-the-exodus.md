@@ -1,4 +1,4 @@
-# THE EXODUS
+# El Éxodo
 
 Faraón y los egipcios dejaron a sus muertos sin sepultura mientras se apresuraban a ayudar a los israelitas a cargar sus pertenencias en carretas, para sacarlos de la tierra con la menor demora posible. Al partir, se llevaron consigo, además de su propio ganado, las ovejas y los bueyes que Faraón había ordenado a sus nobles entregarles como obsequio. El rey obligó asimismo a sus magnates a pedir perdón a los israelitas por cuanto habían padecido, sabedor como era de que el Eterno solo perdona la ofensa que un hombre inflige a su prójimo cuando el ofensor ha recobrado la buena voluntad de su víctima confesando y lamentando su falta.
 

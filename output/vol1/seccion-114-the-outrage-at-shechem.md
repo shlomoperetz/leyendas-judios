@@ -1,4 +1,4 @@
-# THE OUTRAGE AT SHECHEM
+# La afrenta de Shjem
 
 Mientras Yaakov y sus hijos se hallaban sentados en la casa de estudio, ocupados con el estudio de la Torá, Diná salió a ver a las mujeres que danzaban y cantaban, a quienes Shejem había contratado para que bailasen y tocasen en las calles con el propósito de atraerla fuera de su casa. De haberse quedado en el hogar, nada le habría acontecido. Mas era mujer, y a todas las mujeres les agrada mostrarse en la calle. Cuando Shejem la vio, la tomó por la fuerza, aunque era aún muy joven, y la violentó de manera bestial.
 

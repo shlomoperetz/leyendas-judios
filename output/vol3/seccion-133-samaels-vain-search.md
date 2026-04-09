@@ -1,4 +1,4 @@
-# SAMAEL'S VAIN SEARCH
+# La vana búsqueda de Samaél
 
 Samael, el Ángel de la Muerte, no había oído que el Eterno había tomado el alma de Moshé de su cuerpo y la había recibido bajo el Trono de Gloria. Creyendo que Moshé aún se hallaba entre los vivos, se encaminó a la casa de Moshé para apoderarse de su alma, pues temía presentarse ante el Eterno sin haber ejecutado Su mandato de tomar el alma de Moshé. No lo halló, sin embargo, en su lugar acostumbrado, de modo que se apresuró hacia la tierra de Israel, pensando: «Largo tiempo rogó Moshé que se le permitiera entrar en esta tierra, y quizá se encuentre allí». Dijo a la tierra de Israel: «¿Acaso está Moshé contigo?» Mas la tierra respondió: «No, no se le halla en la tierra de los vivos».
 

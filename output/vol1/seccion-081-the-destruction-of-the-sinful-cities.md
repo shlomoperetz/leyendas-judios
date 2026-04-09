@@ -1,4 +1,4 @@
-# THE DESTRUCTION OF THE SINFUL CITIES
+# La destrucción de las ciudades pecadoras
 
 Los ángeles dejaron a Avraham al mediodía y llegaron a Sedom al caer la tarde. Por regla general, los ángeles cumplen su encomienda con la rapidez del relámpago, mas estos eran ángeles de misericordia y vacilaban en ejecutar su obra de destrucción, esperando siempre que el mal fuese apartado de Sedom. Al llegar la noche, la suerte de Sedom quedó sellada de modo irrevocable, y los ángeles arribaron a la ciudad.
 

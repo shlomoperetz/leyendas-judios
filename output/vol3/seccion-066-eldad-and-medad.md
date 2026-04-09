@@ -1,4 +1,4 @@
-# ELDAD AND MEDAD
+# Eldad y Medad
 
 Cuando Moshé hubo completado el nombramiento de los ancianos y les pidió que lo acompañaran al Tabernáculo, donde habrían de recibir el Espíritu Santo, Eldad y Medad, dos de aquellos ancianos, movidos por su humildad, no obedecieron su convocatoria, sino que se ocultaron, considerándose indignos de tal distinción. El Eterno los recompensó por su humildad distinguiéndolos cinco veces por encima de los demás ancianos. Estos profetizaron lo que habría de acontecer al día siguiente, anunciando la aparición de las codornices, pero Eldad y Medad profetizaron lo que aún permanecía velado en el futuro distante. Los ancianos profetizaron únicamente aquel día, mas Eldad y Medad conservaron el don de profecía durante toda su vida. Los ancianos murieron en el desierto, mientras que Eldad y Medad fueron líderes del pueblo tras la muerte de Yehoshúa. Los ancianos no son mencionados por su nombre en las Escrituras, mientras que estos dos son llamados por su nombre. Los ancianos, además, habían recibido el don profético de Moshé, en tanto que Eldad y Medad lo recibieron directamente del Eterno.
 

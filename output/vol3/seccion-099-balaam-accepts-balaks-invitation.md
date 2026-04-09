@@ -1,4 +1,4 @@
-# BALAAM ACCEPTS BALAK'S INVITATION
+# Bilam acepta la invitación de Balak
 
 A la mañana siguiente, Bilam dio a los ancianos de Moav su respuesta, diciéndoles que no acudiría al llamado de Balak, pero sin revelarles la verdad de que el Eterno le había prohibido maldecir a Israel. En cambio, les dijo: «el Eterno me ha dicho: "No vayas con estos hombres, pues ello sería indigno de ti; aguarda a embajadores más nobles."» El plan de Bilam era ofender a Balak para que no le enviara más mensajeros y nadie descubriera que él nada podía hacer más allá de la palabra del Eterno. Sus expectativas, sin embargo, se vieron defraudadas. Los embajadores, a su vez, no del todo escrupulosos en su representación de la verdad, dijeron a su rey que Bilam consideraba indigno de sí presentarse bajo su escolta, sin hacer mención alguna del Eterno, sino hablando como si la negativa procediera simple y exclusivamente de Bilam.
 

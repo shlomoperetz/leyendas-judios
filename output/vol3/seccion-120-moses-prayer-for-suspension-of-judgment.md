@@ -1,4 +1,4 @@
-# MOSES' PRAYER FOR SUSPENSION OF JUDGMENT
+# La plegaria de Moshé para suspender el juicio
 
 Moshé dio inicio a su larga pero infructuosa plegaria diciendo: «¡Señor del mundo! Considera cuánto hube de soportar por causa de Israel hasta que llegaron a ser el pueblo de Tu posesión y de Tu heredad. Sufrí con ellos, ¿no habré entonces de tomar parte en su regocijo? Mira Tú: al prohibirme entrar en la tierra prometida, das por mentirosa Tu propia Torá, pues en ella está escrito: "En su día darás al jornalero su salario." ¿Dónde está, pues, mi salario por los cuarenta años durante los cuales trabajé por el bien de Tus hijos, y por cuya causa padecí mucha aflicción en Egipto, en el desierto y en la entrega de la Torá y los mandamientos? Con ellos sufrí dolor, ¿no habré de contemplar también su buena ventura? Pero Tú me dices que no he de cruzar el Jordán. Todo el tiempo que estuvimos en el desierto no pude sentarme tranquilamente en la academia a enseñar y pronunciar juicio, y ahora que habría de poder hacerlo, Tú me dices que no me es permitido.»
 

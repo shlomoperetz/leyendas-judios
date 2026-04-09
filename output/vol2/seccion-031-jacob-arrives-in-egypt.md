@@ -1,4 +1,4 @@
-# JACOB ARRIVES IN EGYPT
+# Yaakov llega a Egipto
 
 Cuando los nobles de Egipto observaron que el virrey completaba sus preparativos para ir al encuentro de su padre, hicieron otro tanto. En efecto, Yosef había hecho proclamar por toda la tierra que quien no saliera a recibir a Yaakov sería castigado con la muerte. La procesión que lo acompañaba estaba compuesta por innumerables hombres, ataviados en lino fino y púrpura, que marchaban al son de toda suerte de instrumentos musicales. Incluso las mujeres de Egipto tomaron parte en las ceremonias de recibimiento: subieron a las azoteas de las casas y a las murallas de las ciudades, dispuestas a saludar a Yaakov con música de címbalos y panderos.
 

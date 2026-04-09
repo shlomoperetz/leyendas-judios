@@ -1,4 +1,4 @@
-# TWELVE MIRACLES
+# Doce milagros
 
 Pinjás, dispuesto a arriesgar su propia vida para castigar a Zimrí por su pecado, abandonó la casa de estudio donde hasta entonces había debatido el caso de Zimrí con Moshé y todos los demás hombres piadosos, y se proveyó de una lanza, pues no llevaba consigo ninguna, ya que ningún hombre armado puede entrar en una casa de estudio. Para que el arma no lo delatase, separó la parte superior de hierro de la lanza y la ocultó en su pecho, apoyándose en el astil de madera como si fuera un bastón. Cuando llegó a la casa donde Zimrí y Cozbí daban rienda suelta desenfrenada a sus pasiones, la gente le dijo: «¿De dónde vienes, Pinjás, y adónde vas?» Él respondió: «¿Acaso no sabéis que la tribu de Leví siempre se halla donde está la tribu de Shimón?» Entonces le permitieron entrar en la casa, aunque dijeron: «Parece que incluso los fariseos permiten ahora las relaciones con las mujeres paganas.» Una vez dentro, Pinjás desenvainó su lanza «y los atravesó a ambos, al hombre de Israel y a la mujer por el vientre».
 

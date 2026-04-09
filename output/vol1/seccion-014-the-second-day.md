@@ -1,4 +1,4 @@
-# THE SECOND DAY
+# El segundo día
 
 En el segundo día, el Eterno produjo cuatro creaciones: el firmamento, el Guehinom, el fuego y los ángeles. El firmamento no es lo mismo que los cielos del primer día. Es el cristal extendido sobre las cabezas de las Jayot, del cual los cielos reciben su luz, así como la tierra recibe la suya del sol. Este firmamento preserva a la tierra de ser engullida por las aguas de los cielos; constituye la partición entre las aguas de arriba y las aguas de abajo. se cristalizó hasta adquirir solidez por el fuego celestial, que desbordó sus límites y condensó la superficie del firmamento. Así, el fuego estableció una división entre lo celestial y lo terrenal en el momento de la creación, tal como habría de hacerlo durante la revelación en el monte Sinaí. El firmamento no tiene más de tres dedos de espesor; sin embargo, divide dos cuerpos tan pesados como las aguas de abajo, que son los cimientos del mundo inferior, y las aguas de arriba, que son los cimientos de los siete cielos, el Trono Divino y la morada de los ángeles.
 

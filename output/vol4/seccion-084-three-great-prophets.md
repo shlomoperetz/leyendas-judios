@@ -1,4 +1,4 @@
-# THREE GREAT PROPHETS
+# Tres grandes profetas
 
 El reinado de Uzías, quien durante un breve tiempo ocupó el trono en vida de su padre Amasías, resulta especialmente notable porque marca el comienzo de la actividad de tres de los profetas: Hoshea, Amós e Yeshayahu. El mayor de los tres era Hoshea, hijo del profeta y príncipe Beerí, aquel Beerí que más tarde sería llevado cautivo por Tiglat-piléser, rey de Asiria. De las profecías de Beerí apenas conservamos dos versículos, preservados para nosotros por Yeshayahu.
 

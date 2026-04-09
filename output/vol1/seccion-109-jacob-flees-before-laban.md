@@ -1,4 +1,4 @@
-# JACOB FLEES BEFORE LABAN
+# Yaakov huye de Laván
 
 Jacob no había hecho sino aguardar el nacimiento de Iosef para comenzar los preparativos de su regreso al hogar. El espíritu santo le había revelado que la casa de Iosef obraría la destrucción de la casa de Esav, y por ello Jacob exclamó al nacer Iosef: «Ya no necesito temer a Esav ni a sus legiones.»
 

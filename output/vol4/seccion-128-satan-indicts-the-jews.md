@@ -1,4 +1,4 @@
-# SATAN INDICTS THE JEWS
+# Satán acusa a los judíos
 
 La situación de los judíos, una vez conocido el edicto real, escapa a toda descripción. Si un judío se aventuraba a salir a la calle para hacer alguna compra, los persas casi lo estrangulaban, mofándose de él con estas palabras: «No te preocupes, que mañana llegará pronto, y entonces te mataré y te quitaré el dinero.» Si un judío se ofrecía a venderse como esclavo, era rechazado; ni siquiera el sacrificio de su libertad podía protegerlo contra la pérdida de su vida.
 

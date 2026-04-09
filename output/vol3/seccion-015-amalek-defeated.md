@@ -1,4 +1,4 @@
-# AMALEK DEFEATED
+# Amalec derrotado
 
 Moshé instruyó entonces a Yehoshúa acerca de su campaña contra Amalec, diciéndole: «Escógenos hombres y sal a combatir contra Amalec.» Las palabras «escógenos» revelan la modestia de Moshé, quien trataba a su discípulo Yehoshúa como a un igual; con ellas nos enseñó que el honor de nuestros discípulos ha de estar a la misma altura que el nuestro. Yehoshúa no quiso al principio exponerse al peligro y abandonar la protección de la nube, pero Moshé le dijo: «Abandona la nube y sal contra Amalec, si alguna vez esperas ceñir la corona sobre tu cabeza.» Le ordenó que escogiese a sus guerreros de entre los piadosos y temerosos del Eterno, y le prometió que fijaría un día de ayuno para el día siguiente e imploraría al Eterno, en virtud de las buenas obras de los Patriarcas y las esposas de los Patriarcas, que asistiera a Israel en aquella guerra.
 

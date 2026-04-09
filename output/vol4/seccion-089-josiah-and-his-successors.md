@@ -1,4 +1,4 @@
-# JOSIAH AND HIS SUCCESSORS
+# Yoshiyahu y sus sucesores
 
 Que la medida plena del castigo no recayera sobre Amón —pues sus malas acciones eran tales que debería haber perdido su parte en el mundo venidero— se debió a la circunstancia de que tuvo un hijo piadoso y justo. Yoshiyahu ofrece un modelo resplandeciente de arrepentimiento verdadero y sincero. Aunque al principio siguió los pasos de su padre Amón, pronto abandonó los caminos de la perversidad y se convirtió en uno de los reyes más piadosos de Israel, cuyo principal empeño fue el esfuerzo por devolver a todo el pueblo a la fe verdadera. Esto se remonta al tiempo en que se halló en el Templo una copia de la Torá, un ejemplar que había escapado al holocausto encendido por su padre y predecesor Amón con el propósito de exterminar las Sagradas Escrituras. Cuando abrió las Escrituras, el primer versículo que hirió su mirada fue aquel del Deuteronomio: «El Eterno te llevará a ti y a tu rey al exilio, hacia una nación que no has conocido.» Yoshiyahu temió que aquella condena de destierro fuese inminente, y buscó reconciliarse con el Eterno mediante la reforma de su pueblo.
 

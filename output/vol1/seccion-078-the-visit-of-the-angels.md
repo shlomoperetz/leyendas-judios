@@ -1,4 +1,4 @@
-# THE VISIT OF THE ANGELS
+# La visita de los ángeles
 
 Al tercer día después de su circuncisión, cuando Avraham padecía un dolor terrible, el Eterno habló a los ángeles diciendo: «Ea, vayamos a visitar al enfermo.» Los ángeles rehusaron y dijeron: «¿Qué es el hombre para que te acuerdes de él? ¿Y el hijo del hombre para que lo visites? ¿Y deseas encaminarte a un lugar de impureza, un lugar de sangre e inmundicia?» Pero el Eterno les respondió: «¿Así habláis? Por vuestra vida, el aroma de esa sangre me es más dulce que la mirra y el incienso, y si no deseáis visitar a Avraham, iré solo.»
 

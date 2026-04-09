@@ -1,4 +1,4 @@
-# THE INHABITANTS OF THE SEVEN EARTHS
+# Los habitantes de las siete tierras
 
 Cuando Adam fue expulsado del Paraíso, llegó primero a la más baja de las siete tierras, el Erez, que es oscura, sin un solo rayo de luz, y enteramente vacía. Adam quedó aterrorizado, en especial por las llamas de la espada siempre rotante que se halla en esta tierra. Después de haber cumplido penitencia, el Eterno lo condujo a la segunda tierra, el Adamá, donde hay luz reflejada desde su propio cielo y desde sus estrellas y constelaciones fantasmales. Allí moran los seres espectrales que surgieron de la unión de Adam con los espíritus. Están siempre tristes; la emoción de la alegría les es desconocida. Abandonan su propia tierra y se dirigen a la que habitan los hombres, donde se transforman en espíritus malignos. Luego regresan a su morada definitivamente, se arrepienten de sus actos perversos y labran el suelo, el cual, sin embargo, no produce ni trigo ni ninguna otra de las siete especies. En este Adamá nacieron Caín, Hével y Shet.
 

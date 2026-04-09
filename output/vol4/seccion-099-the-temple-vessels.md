@@ -1,4 +1,4 @@
-# THE TEMPLE VESSELS
+# Los utensilios del Templo
 
 La tarea encomendada a Yirmeyahu había sido doble. Además de confiarle la custodia del pueblo en la tierra de su exilio, el Eterno le había encargado el cuidado del Santuario y de todo cuanto contenía. El Arca sagrada, el altar del incienso y la tienda santa fueron trasladados por un ángel al monte desde el cual Moshé, antes de su muerte, había contemplado la tierra divinamente asignada a Israel. Allí encontró Yirmeyahu un lugar espacioso, en el que ocultó estos sagrados utensilios. Algunos de sus compañeros habían ido con él para señalar el camino hacia la cueva, pero aun así no lograron dar con ella. Cuando Yirmeyahu supo de su propósito, los reprendió, pues era voluntad del Eterno que el lugar del escondite permaneciera en secreto hasta la redención, y entonces el Eterno mismo hará visibles las cosas ocultas.
 

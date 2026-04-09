@@ -1,4 +1,4 @@
-# ENOSH
+# Enós
 
 A Enosh le preguntaron quién era su padre, y él nombró a Shet. Los interrogadores, gentes de su tiempo, prosiguieron: «¿Quién fue el padre de Shet?» Enosh respondió: «Adam.» —«¿Y quién fue el padre de Adam?» —«No tuvo padre ni madre; el Eterno lo formó del polvo de la tierra.» —«¡Pero el hombre no tiene apariencia de polvo!» —«Tras la muerte, el hombre retorna al polvo, tal como dijo el Eterno: "Y el hombre volverá al polvo"; mas el día de su creación, el hombre fue hecho a imagen del Eterno.» —«¿Cómo fue creada la mujer?» —«Varón y hembra los creó.» —«¿Pero cómo?» —«el Eterno tomó agua y tierra, y los amasó juntos en forma de hombre.» —«¿Pero cómo?» —insistieron los interrogadores.
 

@@ -1,4 +1,4 @@
-# BALAK, KING OF MOAB
+# Balak, rey de Moab
 
 «El Eterno no permite que nada quede sin recompensa; ni siquiera una palabra decorosa deja de recibir su premio.» La mayor de las dos hijas de Lot había llamado a su hijo, concebido en culpa, Moav —«del padre»—, mientras que la menor, por un sentido de decoro, llamó al suyo Amón —«hijo de mi pueblo»—, y fue recompensada por su pudor. Pues cuando Moshé quiso arremeter contra los descendientes de Lot con la guerra, el Eterno le dijo: «Mis designios difieren de los tuyos. Dos palomas habrán de brotar de estas naciones: la moabita Rut y la amonita Naamí, y por esta razón han de ser preservados ambos pueblos.»
 

@@ -1,4 +1,4 @@
-# JOASH
+# Yoash
 
 Cuando el profeta Yoná, cumpliendo el mandato de su maestro Elishá, ungió a Yehú como rey sobre Israel, vertió el aceite de un cántaro y no de un cuerno, para indicar que la dinastía de Yehú no ocuparía el trono por largo tiempo. Al principio, Yehú, aunque rey un tanto insensato, fue al menos piadoso, pero abandonó sus costumbres temerosas del Eterno desde el momento en que vio el documento que llevaba la firma del profeta Ajiyá de Shiló, el cual obligaba a los firmantes a prestar obediencia absoluta a Yarovam. El rey interpretó esto como prueba de que el profeta había aprobado el culto a los becerros de oro. Así fue como Yehú, el destructor del culto a Baal, no hizo nada por oponerse al servicio idolátrico establecido por Yarovam en Bet-El. Los sucesores de Yehú no fueron mejores; por el contrario, fueron peores, y por ello, en la quinta generación, la mano de un asesino puso fin a la dinastía de Yehú.
 

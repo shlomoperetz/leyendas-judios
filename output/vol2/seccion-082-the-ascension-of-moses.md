@@ -1,4 +1,4 @@
-# THE ASCENSION OF MOSES
+# La ascensión de Moshé
 
 La visión de la zarza ardiente se apareció únicamente a Moshé; los demás pastores que le acompañaban nada vieron de ella. Dio cinco pasos en dirección a la zarza para contemplarla de cerca, y cuando el Eterno contempló el rostro de Moshé desfigurado por el dolor y la angustia ante el sufrimiento de Israel, dijo: «Este es digno del oficio de apacentar a Mi pueblo.»
 

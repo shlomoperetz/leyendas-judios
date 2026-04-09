@@ -1,4 +1,4 @@
-# JONAH IN THE WHALE
+# Yoná en el interior de la ballena
 
 En la creación del mundo, el Eterno hizo un pez destinado a albergar a Yoná. Era tan grande que el profeta se hallaba en su interior tan cómodo como en una sinagoga espaciosa. Los ojos del pez servían a Yoná de ventanas y, además, había un diamante que brillaba con el esplendor del sol en su cénit, de modo que Yoná podía contemplar cuanto había en el mar hasta sus más hondas profundidades.
 

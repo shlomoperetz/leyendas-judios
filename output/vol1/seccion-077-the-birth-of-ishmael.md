@@ -1,4 +1,4 @@
-# THE BIRTH OF ISHMAEL
+# El nacimiento de Ishmael
 
 El pacto de las porciones, mediante el cual fue revelado a Avraham el destino de sus descendientes, se celebró en un tiempo en que aún no tenía hijos. Mientras Avraham y Sará moraron fuera de la Tierra Santa, atribuyeron su falta de descendencia al castigo por no residir en ella. Pero cuando diez años de estancia en la tierra de Israel la hallaron tan estéril como antes, Sará comprendió que la causa residía en ella misma.
 

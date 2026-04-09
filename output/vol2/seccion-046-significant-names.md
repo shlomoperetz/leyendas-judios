@@ -1,4 +1,4 @@
-# SIGNIFICANT NAMES
+# Nombres significativos
 
 Yaakov crió a todos sus hijos en el temor del Eterno y les enseñó los caminos de una vida piadosa, empleando la severidad cuando era menester para que sus lecciones calaran hondo. Cosechó los frutos de su esfuerzo, pues todos sus hijos fueron hombres temerosos del Eterno y de carácter intachable. Los ancestros de las doce tribus se asemejaban a sus padres en piedad, y sus actos no fueron menos significativos que los de Avraham, Itzjak y Yaakov. Al igual que estos tres, merecen ser llamados los Padres de Israel. El Eterno selló con ellos un pacto, tal como lo había sellado con los tres Patriarcas, y a este pacto deben sus descendientes su preservación.
 

@@ -1,4 +1,4 @@
-# MEASURE FOR MEASURE
+# Medida por medida
 
 El Eterno repartió los diez castigos decretados contra Egipto en cuatro partes: tres de las plagas las encomendó a Aarón, tres a Moshé, una a ambos hermanos conjuntamente, y tres se las reservó para sí mismo. A Aarón le fueron asignadas aquellas que procedían de la tierra y el agua, los elementos compuestos de partes más o menos sólidas, de los cuales se forjan todas las entidades corpóreas y diferenciadas, mientras que las tres confiadas a Moshé eran las que procedían del aire y el fuego, los elementos más prolíficos en generar vida.
 

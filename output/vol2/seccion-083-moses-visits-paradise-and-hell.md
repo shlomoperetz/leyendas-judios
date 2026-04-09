@@ -1,4 +1,4 @@
-# MOSES VISITS PARADISE AND HELL
+# Moshé visita el Paraíso y el Guehinom
 
 Cuando Moshé estaba a punto de partir del cielo, una voz celestial proclamó: «Moshé, viniste hasta aquí y contemplaste el trono de Mi gloria. Ahora verás también el Paraíso y el Guehinom». Y el Eterno envió a Gabriel con el encargo de mostrarle el Guehinom. Aterrorizado por sus fuegos, que divisó apenas cruzó los umbrales del Guehinom, Moshé se negó a proseguir. Mas el ángel lo alentó, diciéndole: «Hay un fuego que no solo arde, sino que también consume, y ese fuego te protegerá contra el fuego infernal, de modo que podrás caminar sobre él sin que te abrase».
 

@@ -1,4 +1,4 @@
-# THE FALL OF THE ANGELS
+# La caída de los ángeles
 
 La depravación de la humanidad, que había comenzado a manifestarse en tiempos de Enosh, creció monstruosamente en la época de su nieto Yéred, por causa de los ángeles caídos. Cuando los ángeles vieron a las hermosas y atractivas hijas de los hombres, las codiciaron y dijeron: «Elegiremos esposas solo de entre las hijas de los hombres, y engendraremos hijos con ellas.» Su jefe, Shemjazai, les dijo: «Temo que no llevaréis a cabo este plan vuestro, y que solo yo habré de sufrir las consecuencias de un gran pecado.» Entonces ellos le respondieron y dijeron: «Todos prestaremos juramento, y nos comprometeremos, individual y colectivamente, a no abandonar el plan, sino a llevarlo a término hasta el final.»
 

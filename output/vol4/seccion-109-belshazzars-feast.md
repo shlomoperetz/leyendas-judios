@@ -1,4 +1,4 @@
-# BELSHAZZAR'S FEAST
+# La fiesta de Baltasar
 
 Cuando el Eterno resolvió tomar venganza contra Babilonia por todos los sufrimientos que había infligido a Israel, escogió a Darío y a Ciro como agentes de su represalia. Ciro, rey de Persia, y su suegro Darío, rey de Media, marcharon juntos contra Belshatzar, soberano de los caldeos. La guerra se prolongó durante un tiempo considerable, y la fortuna favoreció ora a un bando, ora al otro, hasta que finalmente los caldeos obtuvieron una victoria decisiva. Para celebrar el acontecimiento, Belshatzar dispuso un gran banquete, servido en los vasos que su padre había arrebatado del Templo de Jerusalén. Mientras el rey y sus invitados festejaban, el ángel enviado por el Eterno trazó sobre la pared las palabras «Mené, Mené, Tekel, Ufarsín», vocablos arameos en caracteres hebreos, escritos con tinta roja. Nadie vio al ángel salvo el rey. Los magnates y los príncipes del reino presentes en la orgía no percibieron nada. El propio rey no llegó a ver la figura del ángel; solo sus dedos formidables le fueron visibles mientras trazaban las palabras.
 

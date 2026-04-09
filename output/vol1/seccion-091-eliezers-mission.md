@@ -1,4 +1,4 @@
-# ELIEZER'S MISSION
+# La misión de Eliézer
 
 La muerte de Sará asestó a Avraham un golpe del que nunca se recuperó. Mientras ella vivió, él se sentía joven y vigoroso, pero tras su partida, la vejez lo alcanzó de súbito. Fue él mismo quien elevó la súplica de que la ancianidad se hiciera visible mediante señales y rasgos apropiados. Antes de los tiempos de Avraham, un hombre anciano no se distinguía externamente de uno joven, y como Itzjak era la viva imagen de su padre, sucedía con frecuencia que padre e hijo eran confundidos el uno con el otro, y una petición dirigida a uno era formulada ante el otro. Avraham rogó, pues, que la vejez portase marcas que la distinguieran de la juventud, y el Eterno concedió su petición, y desde los tiempos de Avraham la apariencia de los hombres se transforma al llegar la ancianidad. Este es uno de los siete grandes prodigios acaecidos en el curso de la historia.
 

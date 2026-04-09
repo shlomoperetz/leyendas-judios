@@ -1,4 +1,4 @@
-# HIS TOMB
+# Su tumba
 
 Cuando David fue sepultado, Shelomó depositó en su tumba tesoros abundantes. Mil trescientos años después, el sumo sacerdote Hircano extrajo mil talentos del dinero allí escondido para emplearlos en impedir el asedio de Jerusalén por el rey griego Antíoco. También el rey Herodes sustrajo grandes sumas. Pero ninguno de los saqueadores logró penetrar hasta el lugar de reposo de los reyes —pues junto a David fueron enterrados sus sucesores—, ya que este se hallaba hundido bajo tierra con tan admirable pericia que resultaba imposible hallarlo.
 

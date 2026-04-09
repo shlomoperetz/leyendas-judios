@@ -1,4 +1,4 @@
-# THE CAPTURE OF JERUSALEM
+# La captura de Yerushaláyim
 
 Si los babilonios creyeron que la conquista de Jerusalén sería tarea fácil, estaban muy equivocados. Durante tres años el Eterno dotó a sus habitantes de fuerza para resistir los embates del enemigo, con la esperanza de que los judíos enmendaran sus malos caminos y abandonaran su conducta impía, de modo que el castigo anunciado pudiera ser revocado.
 

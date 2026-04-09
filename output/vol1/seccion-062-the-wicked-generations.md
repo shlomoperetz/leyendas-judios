@@ -1,4 +1,4 @@
-# THE WICKED GENERATIONS
+# Las generaciones perversas
 
 Diez generaciones mediaron desde Noaj hasta Avraham, para mostrar cuán grande es la clemencia del Eterno, pues todas las generaciones provocaron Su ira, hasta que llegó Avraham, nuestro padre, y recibió la recompensa de todas ellas. Por causa de Avraham, el Eterno se había mostrado longánime y paciente durante la vida de aquellas diez generaciones. Y aún más: el mundo mismo había sido creado en mérito de sus virtudes. Su advenimiento le fue revelado a su antepasado Reú, quien pronunció la siguiente profecía al nacer su hijo Serug: «De este hijo nacerá, en la cuarta generación, aquel que establecerá su morada por encima de lo más alto, y será llamado perfecto e intachable, y será padre de naciones, y su pacto no será disuelto, y su simiente se multiplicará por siempre.»
 

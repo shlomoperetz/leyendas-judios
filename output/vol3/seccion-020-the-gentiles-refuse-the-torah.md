@@ -1,4 +1,4 @@
-# THE GENTILES REFUSE THE TORAH
+# Los gentiles rechazan la Torá
 
 La montaña en la que el Eterno hizo Su revelación lleva seis nombres: se la llama Desierto de Sin, porque allí el Eterno proclamó Sus mandamientos; se la llama Desierto de Kadesh, porque Israel fue allí santificado; Desierto de Kadmut, porque allí fue revelada la Torá preexistente; Desierto de Parán, porque Israel se multiplicó allí grandemente; Desierto de Sinaí, porque allí comenzó el odio del Eterno contra los paganos, por la razón de que estos no quisieron aceptar la Torá; y por esta misma razón se lo llama Jorev, porque allí fue decretada por el Eterno la aniquilación de los paganos. Pues la ira del Eterno contra las naciones data de su negativa a aceptar la Torá que les fue ofrecida.
 

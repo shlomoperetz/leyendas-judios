@@ -1,4 +1,4 @@
-# THE TOWER OF BABEL
+# La Torre de Babel
 
 La iniquidad y la impiedad de Nimrod alcanzaron su punto culminante con la construcción de la Torre de Babel. Sus consejeros habían propuesto el plan de erigir semejante torre, Nimrod había dado su consentimiento, y fue ejecutado en Shinar por una turba de seiscientos mil hombres. La empresa no era ni más ni menos que una rebelión contra el Eterno, y había tres clases de rebeldes entre los constructores. El primer grupo dijo: «Ascendamos a los cielos y libremos guerra contra Él»; el segundo grupo dijo: «Ascendamos a los cielos, erijamos allí nuestros ídolos y rindámosles culto»; y el tercer grupo dijo: «Ascendamos a los cielos y destruyámoslos con nuestros arcos y lanzas».
 

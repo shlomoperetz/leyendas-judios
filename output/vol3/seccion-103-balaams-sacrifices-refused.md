@@ -1,4 +1,4 @@
-# BALAAM'S SACRIFICES REFUSED
+# Los sacrificios de Bilam rechazados
 
 Mejor es un bocado seco con paz que una casa llena de sacrificios con discordia." Más apreciada es para Mí una ofrenda seca de harina que todos estos numerosos sacrificios de carne con los que pretendes sembrar la discordia entre Mí e Israel.»
 

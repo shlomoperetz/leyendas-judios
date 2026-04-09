@@ -1,4 +1,4 @@
-# ABRAHAM IN CANAAN
+# Avraham en Canaán
 
 Con diez pruebas fue tentado Avraham, y todas las resistió, mostrando cuán grande era el amor de Avraham. La primera prueba a la que fue sometido fue la partida de su tierra natal. Muchas y severas fueron las penalidades que hubo de afrontar, y además sentía pesar por abandonar su hogar. Habló con el Eterno y dijo: "¿Acaso no murmurará la gente sobre mí, diciendo: 'Se empeña en traer a las naciones bajo las alas de la Shejiná, y sin embargo abandona a su anciano padre en Jarán y se marcha'?" Mas el Eterno le respondió y dijo: "Desecha de tu pensamiento toda preocupación por tu padre y tus parientes. Aunque te dirijan palabras de bondad, todos son de un mismo parecer: arruinarte."
 

@@ -1,4 +1,4 @@
-# WOMAN
+# La mujer
 
 Cuando Adam abrió los ojos por primera vez y contempló el mundo que lo rodeaba, prorrumpió en alabanza al Eterno: «¡Cuán grandes son Tus obras, oh, Eterno!» Mas su admiración por el mundo circundante no superó la admiración que todas las criaturas concibieron por Adam. Lo tomaron por su creador, y todas acudieron a ofrecerle adoración. Pero él les habló: «¿Por qué venís a adorarme? No, vosotras y yo juntos reconoceremos la majestad y el poder de Aquel que nos ha creado a todos. "El Eterno reina"», prosiguió, «"vestido está de majestad."»
 

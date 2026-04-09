@@ -1,4 +1,4 @@
-# MOSES' LEGACY TO JOSHUA
+# El legado de Moshé a Yehoshúa
 
 Después de que Moshé hubo anunciado a Yehoshúa como su sucesor ante toda la congregación, le reveló que el curso de su propia vida había llegado a su término y que ahora partiría hacia sus padres. Como herencia entregó a Yehoshúa un libro de profecía, que Yehoshúa habría de ungir con aceite de cedro y depositar en un recipiente de barro sobre el lugar que, desde la creación del mundo, el Eterno había dispuesto para él, a fin de que allí fuese invocado Su nombre. Contenía aquel libro, en trazos abreviados, la historia de Israel desde la entrada en la tierra prometida hasta el establecimiento del reino del Eterno sobre la tierra, cuando, en cólera e indignación a causa de Sus hijos, el Eterno se alzará de Su Trono de poder y saldrá de Su santa morada.
 

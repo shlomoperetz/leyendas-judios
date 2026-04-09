@@ -1,4 +1,4 @@
-# THE DEATH OF JACOB
+# La muerte de Yaakov
 
 Después de haber bendecido a cada uno de sus hijos por separado, Yaakov se dirigió a todos ellos en conjunto, diciéndoles: «Según mi poder os he bendecido, mas en los días venideros se levantará un profeta, y este hombre, Moshé, os bendecirá también, y proseguirá mis bendiciones allí donde yo las dejé.» Añadió además que la bendición de cada tribu habría de redundar en beneficio de todas las demás: la tribu de Yehudá tendría parte en el fino trigo de la tribu de Binyamín, y Binyamín gozaría de la buena cebada de Yehudá. Las tribus debían prestarse mutua ayuda, unas a otras.
 

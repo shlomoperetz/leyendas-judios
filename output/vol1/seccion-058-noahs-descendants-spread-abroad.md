@@ -1,4 +1,4 @@
-# NOAH'S DESCENDANTS SPREAD ABROAD
+# Los descendientes de Nóaj se dispersan por el mundo
 
 Cuando Jam supo que su padre lo había maldecido, huyó avergonzado, y junto con su familia se estableció en la ciudad que él mismo había edificado, a la que dio el nombre de Neelatamauk, en honor a su esposa. Celoso de su hermano, Yéfet siguió su ejemplo: también él construyó una ciudad, a la que llamó Adataneses por su mujer. Shem fue el único de los hijos de Nóaj que no lo abandonó. En las cercanías de la morada de su padre, junto a la montaña, edificó su ciudad, a la que igualmente dio el nombre de su esposa: Zedeketelbab. Las tres ciudades se hallan próximas al monte Lubar, la eminencia sobre la cual reposó el arca. La primera se encuentra al sur, la segunda al oeste y la tercera al este.
 

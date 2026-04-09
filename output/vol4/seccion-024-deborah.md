@@ -1,4 +1,4 @@
-# DEBORAH
+# Devorá
 
 No mucho después de Rut, otra mujer ejemplar se alzó en Israel: la profetisa Dvorá.
 

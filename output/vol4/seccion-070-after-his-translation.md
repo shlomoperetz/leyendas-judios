@@ -1,4 +1,4 @@
-# AFTER HIS TRANSLATION
+# Después de su traslación
 
 La remoción de Eliyahu de la tierra, lejos de suponer una interrupción de sus relaciones con los hombres, marca más bien el comienzo de su verdadera actividad como socorredor en tiempos de necesidad, como maestro y como guía. Al principio, su intervención en los asuntos sublunares no fue frecuente. Siete años después de su traslación, escribió una carta al impío rey Yehoram, que reinaba sobre Yehudá. La siguiente ocasión en que tomó parte en un acontecimiento terrenal fue en tiempos de Ajashverosh, cuando hizo a los judíos un gran favor asumiendo el disfraz del cortesano Jarboná, incitando al rey contra Hamán en el momento propicio.
 

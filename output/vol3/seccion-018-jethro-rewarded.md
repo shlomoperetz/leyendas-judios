@@ -1,4 +1,4 @@
-# JETHRO REWARDED
+# Yitró recompensado
 
 Aunque el nombramiento de ancianos por parte de Moshé se llevó a cabo conforme al mandato del Eterno, fue Itró quien con su consejo movió a Moshé a implorar al Eterno que aligerara su carga y le permitiera transferir en parte la conducción del pueblo a otros. Por ello, Moshé no ocultó el nombre de quien le había aconsejado, sino que lo proclamó ante todo el pueblo y lo inmortalizó como tal en las Sagradas Escrituras, pues consideraba cosa loable reconocer debidamente los méritos ajenos. Formaba parte, sin embargo, del designio del Eterno recompensar a Itró por el amor que profesaba a la Torá; y por esa razón permitió que sucediera que Moshé tuviera que recibir de su suegro la indicación sobre el plan de nombrar ancianos, a fin de que las Sagradas Escrituras dedicaran un capítulo entero al plan de Itró.
 

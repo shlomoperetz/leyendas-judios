@@ -1,4 +1,4 @@
-# SOLOMON MASTER OF THE DEMONS
+# Salomón, señor de los demonios
 
 Jamás hubo hombre alguno que gozara, como Shelomó, del privilegio de someter a los demonios a su voluntad. El Eterno lo dotó de la capacidad de transformar el poder pernicioso de los demonios en una fuerza que obrara en beneficio de los hombres. Inventó fórmulas de conjuro mediante las cuales se aliviaban las enfermedades, y otras con las que se exorcizaba a los demonios, de suerte que eran desterrados para siempre. Como servidores personales tenía espíritus y demonios a quienes podía enviar de un sitio a otro en un instante. Podía cultivar plantas tropicales en la Tierra de Israel, pues sus espíritus ministros le procuraban agua desde la India.
 

@@ -1,4 +1,4 @@
-# ABRAHAM EMIGRATES TO HARAN
+# Avraham emigra a Jarán
 
 Durante dos años, Avraham pudo consagrarse sin perturbaciones a la tarea que había elegido: encaminar los corazones de los hombres hacia el Eterno y Sus enseñanzas. En tan piadosa empresa le asistía su esposa Sará, con quien había contraído matrimonio entretanto. Mientras él exhortaba a los varones y procuraba convertirlos, Sará se dirigía a las mujeres. Era una compañera digna de Avraham. En verdad, en dones proféticos se hallaba por encima de su marido. Por esa razón se la llamaba a veces Iscá, «la vidente».
 

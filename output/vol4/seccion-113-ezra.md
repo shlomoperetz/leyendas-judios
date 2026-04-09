@@ -1,4 +1,4 @@
-# EZRA
+# Esdras
 
 El restablecimiento completo de Palestina tuvo lugar bajo la dirección de Ezrá, o, como a veces lo denominan las Escrituras, Malají. No había estado presente en los intentos anteriores de restaurar el santuario, pues no podía abandonar a su anciano maestro Baruj, demasiado avanzado en años para aventurarse en el difícil viaje a Tierra Santa.
 

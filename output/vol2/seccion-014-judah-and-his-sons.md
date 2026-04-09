@@ -1,4 +1,4 @@
-# JUDAH AND HIS SONS
+# Yehudá y sus hijos
 
 Cuando los hijos de Yaakov vieron cuán inconsolable estaba su padre, acudieron a Yehudá y le dijeron: «Esta gran desgracia es culpa tuya.» Yehudá respondió: «Fui yo quien os preguntó: ¿Qué provecho sacamos si matamos a nuestro hermano y ocultamos su sangre?, y ahora venís a decir que el pecado recae sobre mí.» Los hermanos prosiguieron argumentando: «Pero fuiste tú quien dijo: Venid, vendámoslo a los ismaelitas, y nosotros seguimos tu consejo. Si hubieras dicho: Devolvámoslo a su padre, también habríamos atendido esas palabras tuyas.»
 

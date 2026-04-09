@@ -1,4 +1,4 @@
-# MOSES BEHOLDS THE FUTURE
+# Moshé contempla el futuro
 
 La orden del Eterno a Moshé de encaminarse al monte Nevó y allí morir fue expresada con estas palabras: no significa destrucción, sino elevación. «Muere en el monte al que asciendes»; sube tú solo y que nadie te acompañe. Elazar, hijo de Aharón, lo acompañó hasta su sepultura, pero ningún hombre será testigo de la distinción y la recompensa que te aguardan en tu muerte. Allí serás reunido con tu pueblo, con los padres de Israel —Avraham, Itzjak y Yaakov—, y con tus propios padres, Kehat y Amram, así como con tu hermano Aharón y tu hermana Miriam, tal como Aharón tu hermano murió en el monte Hor y fue reunido con su pueblo.»
 

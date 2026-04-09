@@ -1,4 +1,4 @@
-# ANOINTED KING
+# Ungido como rey
 
 Belleza y talento, dones de Adam a David, no libraron a su poseedor de las penalidades. Como presunto hijo de una esclava, fue desterrado del trato con sus hermanos, y sus días transcurrían en el desierto apacentando las ovejas de su padre. (13) Fue precisamente la vida pastoril la que lo preparó para su posterior posición exaltada. Con tierna solicitud guiaba los rebaños que le eran confiados. A los corderos jóvenes los conducía a pastizales de hierba tierna; las parcelas de hierbas menos jugosas las reservaba para las ovejas; y a los carneros adultos y vigorosos les daba las malezas duras como alimento. Entonces dijo el Eterno: «David sabe cuidar ovejas, por tanto será el pastor de mi rebaño Israel.» (14)
 

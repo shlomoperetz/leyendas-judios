@@ -1,4 +1,4 @@
-# THE WAR WITH THE AMORITES
+# La guerra con los amorreos
 
 Al principio, los pueblos que habitaban en los alrededores de Shejem no hicieron intento alguno de molestar a Yaakov, quien había regresado allí al cabo de un tiempo junto con toda su casa para establecer en aquel lugar su morada. Pero al término de siete años, los paganos comenzaron a hostigarlo. Los reyes de los amorreos se congregaron contra los hijos de Yaakov para darles muerte en el Valle de Shejem. «¿No les basta —decían— con haber dado muerte a todos los varones de Shejem? ¿Habremos de permitir ahora que se apoderen también de sus tierras?», y avanzaron para presentar batalla.
 

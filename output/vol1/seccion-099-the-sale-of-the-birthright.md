@@ -1,4 +1,4 @@
-# THE SALE OF THE BIRTHRIGHT
+# La venta de la primogenitura
 
 Aunque Avraham alcanzó una buena vejez, más allá del límite de años concedido a las generaciones posteriores, murió sin embargo cinco años antes del tiempo que le había sido asignado. La intención era dejarlo vivir hasta los ciento ochenta años, la misma edad que tendría Itzjak al morir, pero a causa de Esav, el Eterno puso fin abrupto a su vida. Durante algún tiempo, Esav había estado siguiendo sus malas inclinaciones en secreto. Finalmente se quitó la máscara, y el día de la muerte de Avraham se hizo culpable de cinco crímenes: violó a una doncella desposada, cometió asesinato, negó la resurrección de los muertos, despreció la primogenitura y renegó del Eterno. Entonces dijo el Eterno: «Prometí a Avraham que iría a reunirse con sus padres en paz. ¿Puedo ahora permitir que sea testigo de la rebelión de su nieto contra el Eterno, de su violación de las leyes de la castidad y de su derramamiento de sangre? Mejor es para él morir ahora en paz.»
 

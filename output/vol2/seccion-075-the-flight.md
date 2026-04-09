@@ -1,4 +1,4 @@
-# THE FLIGHT
+# La huida
 
 Un ángel del Eterno llevó a Moshé a un lugar situado a cuarenta jornadas de distancia de Egipto, tan remoto que todo temor quedó desterrado de su mente. En verdad, su angustia nunca había sido por su propia persona, sino únicamente por el porvenir de Israel. La subyugación de su pueblo había constituido siempre para él un enigma sin resolver. ¿Por qué habría de sufrir Israel más que todas las demás naciones?, se preguntaba. Mas cuando sus propias tribulaciones personales lo iniciaron en la maledicencia y la murmuración que imperaban entre los israelitas, entonces se dijo: ¿Merece este pueblo ser redimido? Las condiciones religiosas entre los hijos de Israel eran por aquel entonces de tal índole que no les permitían albergar esperanza alguna de auxilio divino. Se negaban a prestar oído a Aharón y a los cinco hijos de Zéraj, que obraban entre ellos como profetas y los exhortaban al temor del Eterno. Fue a causa de su impiedad que la mano pesada del Faraón recayó sobre ellos con creciente opresión, hasta que el Eterno tuvo misericordia de ellos y envió a Moshé para librarlos de la esclavitud de Egipto.
 

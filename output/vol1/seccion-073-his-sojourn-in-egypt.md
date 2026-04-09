@@ -1,4 +1,4 @@
-# HIS SOJOURN IN EGYPT
+# Su estancia en Egipto
 
 Al llegar a Canaán, buscaron las mismas posadas donde habían descansado antes, a fin de saldar sus cuentas, y también para enseñar con su ejemplo que no es propio buscar nuevos alojamientos a menos que uno se vea obligado a ello.
 

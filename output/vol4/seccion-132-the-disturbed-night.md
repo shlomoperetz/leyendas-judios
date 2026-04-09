@@ -1,4 +1,4 @@
-# THE DISTURBED NIGHT
+# La noche turbada
 
 La noche en que Hamán erigió la horca para Mordejai fue la primera noche de Pésaj, aquella misma noche en la que milagros sin número habían sido obrados en favor de los Patriarcas y de Israel. Mas esta vez, la noche de regocijo se trocó en noche de duelo y noche de espanto. Dondequiera que hubiera judíos, pasaron las horas en llanto y lamentación. Los mayores terrores recayeron sobre Mordejai, pues su propio pueblo lo acusaba de haber provocado sus desgracias con su altivo comportamiento frente a Hamán.
 

@@ -1,4 +1,4 @@
-# ESAU'S TRUE CHARACTER REVEALED
+# El verdadero carácter de Esav al descubierto
 
 Esav llegó con un retraso de cuatro horas. Pese a todos los esfuerzos que había desplegado, no logró cazar pieza alguna, y se vio obligado a matar un perro y preparar su carne para la comida de su padre. Todo aquello había agriado el ánimo de Esav, y cuando invitó a su padre a comer, la invitación sonó áspera. «Levántese mi padre», dijo, «y coma de la caza de su hijo.» Yaakov había hablado de otro modo; había dicho: «Levántate, te ruego, siéntate y come de mi caza.» Las palabras de Esav aterraron grandemente a Itzjak. Su espanto superó al que había sentido cuando su padre estuvo a punto de ofrecerlo en sacrificio, y exclamó: «¿Quién es, pues, aquel que ha sido mediador entre mí y el Eterno para hacer llegar la bendición a Yaakov?» —palabras con las que daba a entender que sospechaba de Rivká como instigadora del acto de Yaakov.
 

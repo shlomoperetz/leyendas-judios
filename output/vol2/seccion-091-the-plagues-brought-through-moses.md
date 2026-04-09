@@ -1,4 +1,4 @@
-# THE PLAGUES BROUGHT THROUGH MOSES
+# Las plagas ejecutadas por medio de Moshé
 
 La cuarta plaga fue también anunciada al rey a primera hora de la mañana, junto a la orilla del río. Faraón acudía allí con regularidad, pues era uno de los magos que necesitan agua para sus encantamientos. Las visitas matutinas de Moshé comenzaban a importunarle, y abandonaba la casa temprano con la esperanza de burlar a su amonestador. Mas el Eterno, que conoce los pensamientos del hombre, envió a Moshé ante Faraón en el preciso instante en que este salía.
 

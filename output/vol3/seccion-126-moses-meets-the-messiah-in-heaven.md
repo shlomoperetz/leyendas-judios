@@ -1,4 +1,4 @@
-# MOSES MEETS THE MESSIAH IN HEAVEN
+# Moshé se encuentra con el Mashíaj en el cielo
 
 Moshé recibió aún otra distinción especial el día de su muerte, pues en aquel día el Eterno le permitió ascender al lugar excelso del cielo, y le mostró la recompensa que le aguardaba en las alturas y lo que había de venir. El atributo divino de la Misericordia se presentó allí ante él y le dijo: «Te traigo buenas nuevas que habrán de alegrarte. Vuélvete hacia el Trono de la Misericordia y contempla.» Moshé se volvió hacia el Trono de la Misericordia y vio al Eterno edificar el Templo de joyas y perlas, mientras entre las gemas y las perlas relumbraba el resplandor de la Shejiná, más brillante que todas las piedras preciosas. Y en aquel Templo contempló al Mashíaj, hijo de David, y a su propio hermano Aharón, de pie y erguido, vestido con las vestiduras del Sumo Sacerdote. Aharón dijo entonces a Moshé: «No te acerques, pues este es el lugar donde mora la Shejiná, y has de saber que nadie puede entrar aquí antes de haber gustado la muerte y de que su alma haya sido entregada al Ángel de la Muerte.»
 

@@ -1,4 +1,4 @@
-# SIMON'S ADMONITION AGAINST ENVY
+# La admonición de Shimón contra la envidia
 
 Así como Reuvén confesó su pecado en su lecho de muerte y advirtió a sus hijos y a su familia que se guardaran de la impudicia, el vicio que había provocado su caída, del mismo modo Shimón, cuando estaba a punto de morir, reunió a sus hijos en torno a él y confesó el pecado que había cometido. Se había hecho culpable de una envidia desmedida hacia Yosef, y habló así: «Fui el segundo hijo engendrado por mi padre Yaakov, y mi madre Leá me llamó Shimón, porque el Eterno había escuchado su plegaria. Me hice fuerte y no rehusé clase alguna de acción, y de nada tuve temor, pues mi corazón era duro, y mi entraña inflexible, y mis entrañas carecían de misericordia. En los días de mi juventud tuve celos de Yosef, pues nuestro padre lo amaba más que a todos los demás, y resolví matarlo. Pues el príncipe de la tentación envió el espíritu de los celos a tomar posesión de mí, y me cegó de tal modo que no consideré a Yosef como mi hermano, y ni siquiera tuve miramiento con mi padre Yaakov. Pero su Dios, el Dios de sus padres, envió a Su ángel y lo salvó de mis manos.
 

@@ -1,4 +1,4 @@
-# JOSEPH AND ZULEIKA
+# Yosef y Zuleiká
 
 «Lanza el palo al aire, que siempre regresará a su lugar de origen.» Como Rajel, su madre, Yosef era de una hermosura arrebatadora, y la esposa de su amo se vio poseída por una pasión invencible hacia él.
 

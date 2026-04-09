@@ -1,4 +1,4 @@
-# THE BIRTH OF CAIN
+# El nacimiento de Caín
 
 Diez generaciones mediaron de Adám a Nóaj, para mostrar cuán longánime es el Eterno, pues todas aquellas generaciones Lo provocaron a ira, hasta que trajo sobre ellas el diluvio. A causa de su impiedad, el Eterno mudó Su designio de suscitar mil generaciones entre la creación del mundo y la revelación de la ley en el monte Sinaí; novecientas setenta y cuatro fueron suprimidas antes del diluvio.
 

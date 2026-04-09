@@ -1,4 +1,4 @@
-# THE FLIGHT OF JONAH
+# La huida de Yoná
 
 Entre los muchos miles de discípulos que Elishá reunió en torno a sí durante los sesenta años y más de su actividad, el más prominente fue el profeta Yoná. Estando aún vivo el maestro, Yoná recibió la importante misión de ungir a Yehú como rey. La siguiente tarea que le fue encomendada consistió en proclamar la destrucción a los habitantes de Yerushalayim. La condena no llegó a cumplirse, pues se arrepintieron de sus malas obras y el Eterno tuvo misericordia de ellos. Entre los israelitas, Yoná fue conocido desde entonces como «el falso profeta». Cuando fue enviado a Nínive para profetizar la caída de la ciudad, reflexionó: «Sé con toda certeza que los gentiles harán penitencia, que el castigo anunciado no se ejecutará, y que también entre los gentiles adquiriré fama de falso profeta.» Para escapar de tal deshonra, resolvió establecer su morada en el mar, donde no habría nadie a quien entregar profecías destinadas a no cumplirse jamás.
 

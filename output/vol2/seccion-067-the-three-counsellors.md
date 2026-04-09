@@ -1,4 +1,4 @@
-# THE THREE COUNSELLORS
+# Los tres consejeros
 
 En el año ciento treinta después de que Israel descendiera a Egipto, el Faraón tuvo un sueño: se hallaba sentado en su trono y, al alzar los ojos, contempló ante sí a un anciano con una balanza en la mano. Lo vio tomar a todos los ancianos, nobles y grandes hombres de Egipto, atarlos juntos y depositarlos en uno de los platillos de la balanza, mientras en el otro colocaba un tierno cabrito. El cabrito hizo descender el platillo en que yacía hasta quedar más bajo que aquel donde estaban los egipcios maniatados. El Faraón se levantó de madrugada y convocó a todos sus servidores y a sus sabios para que le interpretaran el sueño, y aquellos hombres se llenaron de gran temor ante su visión. Entonces habló Bilam, hijo de Beor, y dijo: «Esto no significa sino que un gran mal se alzará contra Egipto, pues nacerá un hijo en Israel que destruirá toda nuestra tierra y a cuantos la habitan, y sacará a los israelitas de Egipto con mano poderosa. Ahora pues, oh rey, toma consejo sobre este asunto, a fin de que la esperanza de Israel sea frustrada antes de que este mal se abata sobre Egipto».
 

@@ -1,4 +1,4 @@
-# THE SMITING OF THE FIRST-BORN
+# La muerte de los primogénitos
 
 Cuando Moshé anunció la muerte de los primogénitos, las víctimas designadas acudieron todas ante sus padres y dijeron: «Cuanto Moshé ha profetizado se ha cumplido. Dejad partir a los hebreos, o todos moriremos.» Mas los padres respondieron: «Preferible es que muera uno de cada diez de nosotros a que los hebreos lleven a cabo su propósito.» Entonces los primogénitos acudieron ante el Faraón para instarle a dejar marchar a los hijos de Israel. Lejos de concederles su deseo, ordenó a sus siervos que se arrojaran sobre los primogénitos y los golpearan, en castigo por su demanda presuntuosa. Viendo que por medios pacíficos nada lograban, intentaron conseguirlo por la fuerza.
 

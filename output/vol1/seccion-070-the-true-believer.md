@@ -1,4 +1,4 @@
-# THE TRUE BELIEVER
+# El verdadero creyente
 
 Una vez entró Avraham en el templo de los ídolos que había en la casa de su padre, para ofrecerles sacrificios, y halló a uno de ellos, llamado Marumat, tallado en piedra, postrado de bruces ante el dios de hierro de Najor. El ídolo era demasiado pesado para que él solo pudiera levantarlo, de modo que llamó a su padre para que le ayudase a reponer a Marumat en su lugar. Mientras manipulaban la imagen, se le desprendió la cabeza, y Téraj tomó una piedra, labró otro Marumat y colocó la cabeza del primero sobre el cuerpo nuevo. Luego prosiguió Téraj y fabricó cinco dioses más, y todos ellos se los entregó a Avraham, ordenándole que los vendiese por las calles de la ciudad.
 

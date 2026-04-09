@@ -1,4 +1,4 @@
-# THE BIRTH OF NOAH
+# El nacimiento de Nóaj
 
 Metushélaj tomó esposa para su hijo Lémej, y ella le dio un hijo varón. El cuerpo de la criatura era blanco como la nieve y rojo como una rosa en flor, y el cabello de su cabeza y sus largos mechones eran blancos como la lana, y sus ojos semejaban los rayos del sol. Cuando abrió los ojos, iluminó la casa entera, como el sol, y toda la casa se colmó de luz. Y cuando fue tomado de las manos de la partera, abrió su boca y alabó al Eterno de la justicia. Su padre Lémej se llenó de temor ante él, y huyó, y acudió ante su propio padre Metushélaj. Y le dijo: «He engendrado un hijo extraño; no es como un ser humano, sino que se asemeja a los hijos de los ángeles del cielo, y su naturaleza es diferente, y no es como nosotros, y sus ojos son como los rayos del sol, y su semblante es glorioso. Y me parece que no ha brotado de mí, sino de los ángeles, y temo que en sus días se obre un prodigio sobre la tierra. Y ahora, padre mío, estoy aquí para suplicarte e implorarte que vayas ante Janoj, nuestro padre, y conozcas de él la verdad, pues su morada se halla entre los ángeles.»
 

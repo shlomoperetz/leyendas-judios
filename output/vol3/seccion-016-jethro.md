@@ -1,4 +1,4 @@
-# JETHRO
+# Yitró
 
 «Hiere al escarnecedor, y el simple escarmentará.» La destrucción de Amalek hizo que Yitró recobrase el juicio. Yitró había estado originalmente en la misma conspiración que Amalek, pues ambos habían incitado al Faraón contra Israel; pero cuando vio que Amalek perdió este mundo y el venidero, se arrepintió de sus caminos pecaminosos, diciendo: «No me queda sino pasarme al Eterno de Israel»; y aunque vivía en medio de la mayor riqueza y los más altos honores, resolvió partir hacia el desierto, en busca de Moshé y de su Dios.
 

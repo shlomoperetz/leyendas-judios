@@ -1,4 +1,4 @@
-# ESTHER INTERCEDES
+# Ester intercede
 
 Tras concluir su plegaria, Ester se encaminó hacia el rey acompañada de tres doncellas: una caminaba a su derecha, la segunda al otro costado, y la tercera le sostenía la cola del vestido, pesada por las piedras preciosas que la engalanaban. Su mayor ornamento, sin embargo, era el espíritu santo que se derramaba sobre ella. Mas apenas hubo entrado en la cámara donde se hallaban los ídolos, el espíritu santo se apartó de ella, y clamó con gran angustia: «Elí, Elí, ¿lamá azavtani? ¿Habré de ser castigada por actos que cometo contra mi voluntad, y solo obedeciendo a los apremios de la más acuciante necesidad? ¿Por qué ha de ser mi destino distinto del de la Madre? Cuando el Faraón apenas intentó acercarse a Sará, plagas cayeron sobre él y sobre su casa; pero yo he sido obligada durante años a convivir con este gentil, y Tú no me libras de su mano. ¡Oh Señor del mundo! ¿Acaso no he guardado escrupuloso cuidado de los tres preceptos que Tú ordenaste especialmente para las mujeres?»
 

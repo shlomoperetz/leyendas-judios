@@ -1,4 +1,4 @@
-# BENJAMIN EXTOLS JOSEPH
+# Binyamín ensalza a Yosef
 
 Binyamín contaba ciento veinticinco años cuando llamó a sus hijos a su presencia. Cuando comparecieron ante él, los besó y les habló así: «Del mismo modo que Itzjak nació de Avraham en su vejez, así nací yo de Yaakov cuando ya estaba cargado de años. Por eso fui llamado Binyamín, "el hijo de los días". Mi madre Rajel murió al darme a luz, y Bilhá, su sierva, me amamantó. Rajel no tuvo hijos durante doce años después de haber dado a luz a Yosef. Entonces oró al Eterno y ayunó doce días, y concibió y me dio a luz. Nuestro padre amaba a Rajel con ternura, y había anhelado con gran deseo tener dos hijos de ella.
 

@@ -1,4 +1,4 @@
-# THE RULER OF EGYPT
+# El gobernante de Egipto
 
 Ahora José cosechó el fruto de sus virtudes, y conforme a la medida de sus méritos el Eterno le otorgó recompensa. La boca que rehusó el beso de la pasión ilícita y del pecado recibió el beso de homenaje del pueblo; el cuello que no se inclinó ante el pecado fue adornado con la cadena de oro que el Faraón puso sobre él; las manos que no tocaron el pecado llevaron el anillo de sello que el Faraón se quitó de su propia mano para ponerlo en la de José; el cuerpo que no entró en contacto con el pecado fue revestido con vestiduras de lino finísimo; los pies que no dieron paso alguno en dirección al pecado reposaron en el carruaje real, y los pensamientos que se mantuvieron incontaminados por el pecado fueron proclamados como sabiduría.
 

@@ -1,4 +1,4 @@
-# THE FIRST THINGS CREATED
+# Las primeras cosas creadas
 
 En el principio, dos mil años antes del cielo y la tierra, siete cosas fueron creadas: la Torá, escrita con fuego negro sobre fuego blanco, reposando en el regazo del Eterno; el Trono Divino, erigido en el cielo que más tarde se alzaría sobre las cabezas de las Jayot; el Paraíso a la diestra del Eterno, el Guehinom a su siniestra; el Santuario Celestial directamente frente al Eterno, con una joya sobre su altar en la que estaba grabado el Nombre del Mashíaj, y una Voz que clama en alta voz: «¡Retornad, hijos de los hombres!»
 

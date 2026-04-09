@@ -1,4 +1,4 @@
-# ABRAHAM'S FIRST APPEARANCE IN PUBLIC
+# La primera aparición pública de Avraham
 
 Avraham, por mandato del Eterno, recibió del ángel Gavriel la orden de seguir a Nimrod hasta Babilonia. Objetó que de ningún modo se hallaba pertrechado para emprender campaña alguna contra el rey, mas Gavriel lo sosegó con estas palabras: «No necesitas provisiones para el camino, ni caballo en que cabalgar, ni guerreros con que combatir a Nimrod, ni carros, ni jinetes. Siéntate tan solo sobre mi hombro y yo te llevaré a Babilonia.»
 

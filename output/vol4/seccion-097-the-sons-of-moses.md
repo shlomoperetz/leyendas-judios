@@ -1,4 +1,4 @@
-# THE SONS OF MOSES
+# Los hijos de Moshé
 
 En la tierra de los Hijos de Moshé no hay sino animales puros, y en todos los aspectos sus habitantes llevan una vida santa e inmaculada, digna de su antepasado Moshé. Jamás profieren juramento alguno, y si acaso un juramento escapa de los labios de alguno de ellos, al punto se le recuerda el castigo divino ligado a su acto: sus hijos morirán en tierna edad.
 

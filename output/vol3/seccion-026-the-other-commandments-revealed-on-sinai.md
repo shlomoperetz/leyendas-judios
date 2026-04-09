@@ -1,4 +1,4 @@
-# THE OTHER COMMANDMENTS REVEALED ON SINAI
+# Los demás mandamientos revelados en el Sinaí
 
 Después de que Israel aceptase el primer mandamiento con un «Sí», el Eterno dijo:
 «Puesto que me habéis reconocido como vuestro soberano, puedo ahora daros mandamientos: No reconocerás como tales a los dioses de otras naciones, pues no reportan beneficio alguno a quienes los adoran; esto no habrás de hacerlo mientras Yo exista. Os he dado Mi Torá para conferiros soberanía, por lo cual no debéis encender Mi ira quebrantando Mi pacto mediante la idolatría. No adoraréis ídolos muertos, sino a Aquel que mata y devuelve a la vida, y en cuya mano se hallan todos los seres vivientes. No aprendáis las obras de otras naciones, pues sus obras son vanidad. Yo, el Eterno, vuestro Dios, gobierno sobre el celo y no soy gobernado por él; aguardo hasta la cuarta generación para imponer castigo. Pero a quienes me aman, o me temen, los recompensaré hasta la milésima generación.»

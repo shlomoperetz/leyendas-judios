@@ -1,4 +1,4 @@
-# THE ALPHABET
+# El alfabeto
 
 Cuando el Eterno estaba a punto de crear el mundo por Su palabra, las veintidós letras del alfabeto descendieron de la terrible y augusta corona del Eterno, donde se hallaban grabadas con un cálamo de fuego llameante. Se dispusieron en torno al Eterno, y una tras otra tomaron la palabra y suplicaron: «¡Crea el mundo a través de mí!» La primera en dar un paso al frente fue la letra Tav. Dijo: «¡Oh, Señor del mundo! Sea Tu voluntad crear Tu mundo a través de mí, puesto que es a través de mí que habrás de dar la Torá a Israel por mano de Moshé, como está escrito: "Moshé nos ordenó la Torá."» El Santo, bendito sea, respondió y dijo: «¡No!» La Tav preguntó: «¿Por qué no?», y el Eterno contestó: «Porque en los días venideros te colocaré como signo de muerte sobre la frente de los hombres.» En cuanto la Tav oyó estas palabras brotar de la boca del Santo, bendito sea, se retiró de Su presencia decepcionada.
 

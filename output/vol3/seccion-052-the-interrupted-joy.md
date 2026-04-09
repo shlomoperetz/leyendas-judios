@@ -1,4 +1,4 @@
-# THE INTERRUPTED JOY
+# La alegría interrumpida
 
 La más dichosa entre las mujeres en aquel día fue Elisheva, hija de Aminadav, pues además del regocijo general por la dedicación del santuario, cinco alegrías particulares recayeron en su suerte: su esposo, Aarón, era sumo sacerdote; su cuñado, Moshé, rey; su hijo, Elazar, jefe de los sacerdotes; su nieto, Pinjás, sacerdote de guerra; y su hermano, Najshón, príncipe de su tribu. Mas ¡cuán pronto se trocó su gozo en duelo! Sus dos hijos, Nadav y Avihú, arrebatados por el júbilo universal ante el fuego celestial, se acercaron al santuario con los incensarios en las manos, deseando acrecentar el amor del Eterno por Israel mediante aquel acto de sacrificio, pero pagaron con sus vidas aquella ofrenda. Del Santo de los Santos brotaron dos llamas de fuego, delgadas como hilos, que luego se dividieron en cuatro, y dos de ellas penetraron por las fosas nasales de Nadav y dos por las de Avihú, cuyas almas fueron consumidas, aunque ninguna lesión externa resultó visible.
 

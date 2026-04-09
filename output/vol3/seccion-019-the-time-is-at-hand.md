@@ -1,4 +1,4 @@
-# THE TIME IS AT HAND
+# Ha llegado el momento
 
 Moshé envió a su suegro Yitró de regreso a su hogar poco antes de la revelación en el monte Sinaí. Pensó: «Cuando el Eterno nos dio en Egipto un solo mandamiento de la Torá, el de Pésaj, dijo: "Ningún extraño comerá de él." Ciertamente, Yitró no debe estar presente cuando el Eterno nos otorgue la Torá entera.» Moshé estaba en lo cierto: el Eterno no quería que Yitró presenciara la revelación. Dijo: «Israel estuvo en Egipto, sujeto al trabajo con arcilla y ladrillos, mientras Yitró permanecía sentado en su hogar, en paz y sosiego. Quien sufre junto a la comunidad habrá de compartir sus alegrías futuras, mas quien no comparte los padecimientos de la comunidad no tomará parte en su regocijo.»
 

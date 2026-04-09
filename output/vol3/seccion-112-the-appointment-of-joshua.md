@@ -1,4 +1,4 @@
-# THE APPOINTMENT OF JOSHUA
+# El nombramiento de Yehoshúa
 
 Cuando Moshé oyó la decisión del Eterno en el caso de las hijas de Tzelofejad, que resultó favorable a ellas de modo que heredaron la propiedad de su padre, pensó: «Este es un momento propicio para elevar una súplica ante el Eterno, pues si las hijas heredan a su padre, entonces mis hijos habrán de heredar mi cargo.» Comenzó entonces a orar al Eterno pidiendo que sus sucesores, quienes, según esperaba, serían también sus descendientes, fuesen dignos guías de su pueblo. Dijo: «Oh, Eterno mío, ante quien comparecen los espíritus de todos los seres humanos, de modo que conoces el espíritu de cada uno —cuál espíritu es soberbio y cuál humilde, cuál es paciente y cuál inquieto—, dígnate poner al frente de Tu comunidad a un hombre dotado de fortaleza, de sabiduría, de prestancia y de decoro, para que su conducta no cause agravio al pueblo. ¡Oh, Señor del universo! Tú conoces los pareceres de cada hombre, y sabes que cada uno tiene un parecer propio; por ello, estando yo a punto de partir de este mundo, Te ruego que designes sobre ellos un líder que sepa tratar a cada hombre conforme a su parecer.»
 

@@ -1,4 +1,4 @@
-# JEPHTHAH
+# Yiftaj
 
 El primer juez de verdadera importancia tras Guidón fue Yiftaj. También él estuvo lejos de ser el gobernante judío ideal. Su padre había desposado a una mujer de otra tribu, cosa inusual en una época en que la mujer que abandonaba su tribu era tenida en desprecio. Yiftaj, fruto de aquella unión, hubo de cargar con las consecuencias de la conducta irregular de su madre. Tantas afrentas le fueron infligidas que se vio obligado a abandonar su hogar y establecerse en una comarca pagana.
 

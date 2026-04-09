@@ -1,4 +1,4 @@
-# THE UNGRATEFUL MULTITUDE
+# La multitud ingrata
 
 Apenas habían partido del Sinaí cuando volvieron a entregarse a la vida perversa que por un tiempo habían abandonado. Comenzaron a buscar un pretexto para renegar del Eterno y entregarse de nuevo a la idolatría. Se quejaban de las marchas forzadas que por mandato del Eterno se habían visto obligados a emprender tras su partida del Sinaí, y de este modo mostraban su ingratitud hacia el Eterno, quien deseaba que llegasen lo antes posible a la Tierra Santa, y por esta razón les había permitido cubrir en tres días una distancia de once jornadas. Sus murmuraciones y quejas, sin embargo, no eran calladas sino bien sonoras, pues estaban ansiosos de que el Eterno oyera sus palabras perversas. Como castigo por su ultraje a la gloria divina, el Eterno envió sobre ellos un fuego que emanaba de esa misma gloria.
 

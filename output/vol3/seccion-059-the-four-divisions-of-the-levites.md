@@ -1,4 +1,4 @@
-# THE FOUR DIVISIONS OF THE LEVITES
+# Las cuatro divisiones de los levitas
 
 Además del censo de todos los varones levitas, Moshé llevó a cabo otro recuento de los hombres de entre treinta y cincuenta años, pues solo a esa edad les era permitido a los levitas desempeñar el servicio en el Tabernáculo durante la travesía por el desierto, ley que dejó de regir cuando Israel se asentó en la Tierra Santa. Estos levitas oficiantes, al igual que los sacerdotes, fueron divididos por Moshé en ocho secciones, número que no se duplicó hasta que el profeta Shmuel lo elevó a dieciséis, a las cuales David añadió otras ocho, de modo que más adelante hubo veinticuatro divisiones entre levitas y sacerdotes.
 

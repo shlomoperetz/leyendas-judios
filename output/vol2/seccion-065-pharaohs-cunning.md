@@ -1,4 +1,4 @@
-# PHARAOH'S CUNNING
+# La astucia del Faraón
 
 Los consejeros y ancianos de Egipto acudieron ante Paró y le hablaron diciendo: «He aquí que el pueblo de los hijos de Israel es más numeroso y más poderoso que nosotros. Tú mismo has visto la gran fuerza que heredaron de sus padres, pues unos pocos de entre ellos se alzaron contra un pueblo tan numeroso como la arena del mar, y ni uno solo cayó. Ahora, pues, danos consejo sobre qué hacer con ellos, hasta que logremos destruirlos gradualmente de entre nosotros, no sea que se multipliquen en exceso en la tierra, pues si crecen en número y sobreviene alguna guerra, se unirán con su gran fortaleza a nuestros enemigos y combatirán contra nosotros, nos aniquilarán de la tierra y ellos mismos escaparán de ella.»
 

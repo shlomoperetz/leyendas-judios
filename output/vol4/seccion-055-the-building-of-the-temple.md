@@ -1,4 +1,4 @@
-# THE BUILDING OF THE TEMPLE
+# La construcción del Templo
 
 Entre las grandes realizaciones de Shlomó, el primer lugar ha de otorgarse al soberbio Templo que él edificó. Durante largo tiempo albergó dudas acerca del lugar donde habría de construirlo. Una voz celestial lo guió a dirigirse de noche al monte Tzión, a un campo que poseían en común dos hermanos. Uno de ellos era soltero y pobre; el otro había sido bendecido tanto con riqueza como con una familia numerosa de hijos. Era tiempo de cosecha. Al amparo de la noche, el hermano pobre añadía grano al montón del otro, pues, aunque él era pobre, pensaba que su hermano lo necesitaba más a causa de su numerosa familia. El hermano rico, del mismo modo furtivo, aumentaba las reservas del pobre, pensando que, aunque él mismo tenía una familia que mantener, el otro carecía de recursos. Este campo, concluyó Shlomó, que había suscitado tan extraordinaria manifestación de amor fraterno, era el mejor emplazamiento para el Templo, y lo compró.
 

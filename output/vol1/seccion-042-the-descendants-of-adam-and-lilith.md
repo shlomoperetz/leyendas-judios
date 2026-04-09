@@ -1,4 +1,4 @@
-# THE DESCENDANTS OF ADAM AND LILITH
+# Los descendientes de Adán y Lilit
 
 Cuando las esposas de Lémej oyeron la decisión de Adán —que debían seguir viviendo con su marido—, se volvieron contra él diciéndole: «¡Oh, médico, cura tu propia cojera!». Aludían con ello al hecho de que él mismo había dejado de convivir con su esposa desde la muerte de Hével, pues había dicho: «¿Para qué engendrar hijos, si solo es para exponerlos a la muerte?».
 

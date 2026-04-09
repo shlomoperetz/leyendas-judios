@@ -1,4 +1,4 @@
-# THE PATRON OF HEBRON
+# El patrono de Hebrón
 
 Hubo una vez unos judíos que vivían en Hebrón, pocos en número, pero piadosos y buenos, y singularmente hospitalarios. Cuando llegaban forasteros a la Cueva de Majpelá para orar allí, los moradores del lugar competían entre sí por el privilegio de agasajar a los huéspedes, y aquel que se alzaba con la victoria se regocijaba como si hubiera hallado un gran botín.
 

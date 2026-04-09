@@ -1,4 +1,4 @@
-# KIND AND UNKIND BRETHREN
+# Hermanos bondadosos y hermanos crueles
 
 El vigésimo primer día del segundo mes, en el segundo de los siete años de hambruna, Yaakov descendió a Egipto, y su nuera Asenat fue a visitarlo. No poco se maravilló ella ante su hermosura y su vigor. Sus hombros y sus brazos eran como los de un ángel, y sus lomos como los de un gigante. Yaakov le dio su bendición, y junto a su esposo regresó ella a casa, acompañada por los hijos de Leá, mientras los hijos de las siervas, recordando el mal que en otro tiempo habían hecho a Yosef, se mantuvieron apartados. Leví en particular había concebido un especial afecto por Asenat. Él se hallaba singularmente próximo al Eterno Viviente, pues era profeta y sabio, sus ojos estaban abiertos, y sabía leer los libros celestiales escritos por el dedo del Eterno. Reveló a Asenat que había visto su futuro lugar de reposo en el cielo, y estaba edificado sobre una roca y circundado por un muro de diamante.
 

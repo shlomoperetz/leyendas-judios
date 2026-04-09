@@ -1,4 +1,4 @@
-# THE BLESSING OF MOSES
+# La bendición de Moshé
 
 «Salva a Tu pueblo y bendice Tu heredad: susténtalos y elévalos por siempre».
 

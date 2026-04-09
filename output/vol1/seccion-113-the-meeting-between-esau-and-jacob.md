@@ -1,4 +1,4 @@
-# THE MEETING BETWEEN ESAU AND JACOB
+# El encuentro entre Esav y Yaakov
 
 Al despuntar el día, el ángel cesó de luchar con Yaakov. El alba de aquella jornada fue de duración particularmente breve. El sol se alzó dos horas antes de su hora señalada, a modo de compensación por haberse puesto temprano el día en que Yaakov pasó junto al monte Moriá en su viaje a Jarán, para inducirlo a desviarse del camino y pernoctar en el lugar donde habría de erigirse el futuro Templo. En verdad, el poder del sol en aquel mismo día fue del todo extraordinario. Resplandeció con la brillantez y el ardor de que fue investido durante los seis días de la creación, y tal como resplandecerá al final de los tiempos, para sanar a los cojos y los ciegos entre los judíos y consumir a los paganos. Esta misma propiedad, sanadora y devastadora a un tiempo, obró también aquel día, pues Yaakov quedó curado, mientras que Esav y sus príncipes fueron casi abrasados por su terrible calor.
 

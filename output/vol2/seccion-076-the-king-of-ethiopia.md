@@ -1,4 +1,4 @@
-# THE KING OF ETHIOPIA
+# El rey de Etiopía
 
 No hallaron a nadie salvo a Moshé que fuera digno de ser su rey. Se apresuraron y cada hombre se despojó de su vestidura superior, y las arrojaron todas en un montón sobre el suelo, formando un estrado elevado, en cuya cima sentaron a Moshé. Entonces soplaron las trompetas y proclamaron ante él: «¡Viva el rey! ¡Viva el rey!» Y todo el pueblo y los nobles le juraron que le darían por esposa a Adoniah, la reina etíope, viuda de Kikanos. Y aquel día hicieron a Moshé rey sobre ellos.
 

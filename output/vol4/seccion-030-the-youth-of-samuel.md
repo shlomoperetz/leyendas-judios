@@ -1,4 +1,4 @@
-# THE YOUTH OF SAMUEL
+# La juventud de Samuel
 
 La plegaria de Janá fue escuchada. Al cabo de seis meses y unos pocos días, Shmuel le nació, en el decimonoveno año de su vida conyugal y en el centésimo trigésimo de su edad. Shmuel era de constitución frágil y requería cuidados y crianza delicados. Por esta razón, ni él ni su madre pudieron acompañar a Elcaná en sus peregrinaciones. Janá mantuvo a su hijo apartado del santuario durante algunos años. Antes del nacimiento de Shmuel, una voz celestial había proclamado que en breve tiempo nacería un gran hombre cuyo nombre sería Shmuel. Todos los varones nacidos en aquella época fueron, en consecuencia, llamados Shmuel. A medida que crecían, las madres solían reunirse y referir las hazañas de sus hijos, a fin de determinar cuál de ellos satisfacía las expectativas que la profecía había suscitado. Cuando nació el verdadero Shmuel, y con sus prodigiosas obras superó a todos sus compañeros, quedó claro a quién se refería la palabra del Eterno. Siendo ya indiscutible su preeminencia, Janá estuvo dispuesta a separarse de él.
 

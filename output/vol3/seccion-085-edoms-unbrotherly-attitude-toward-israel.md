@@ -1,4 +1,4 @@
-# EDOM'S UNBROTHERLY ATTITUDE TOWARD ISRAEL
+# La actitud poco fraterna de Edom hacia Israel
 
 Desde Kadesh envió Moshé embajadores al rey de Edom, solicitándole permiso para que Israel atravesara su territorio. «Pues —pensó Moshé— cuando nuestro padre Yaakov, con apenas un pequeño grupo de hombres, se dispuso a regresar a la casa de su padre, que ni siquiera se hallaba en los dominios de Esav, envió previamente un mensajero para pedirle su consentimiento. ¡Cuánto más nos corresponde a nosotros, pueblo de gran multitud, abstenernos de entrar en el territorio de Edom sin haber recibido antes su venia!»
 

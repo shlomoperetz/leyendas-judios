@@ -1,4 +1,4 @@
-# MOSES EXCELS ALL PIOUS MEN
+# Moshé supera a todos los hombres piadosos
 
 La distinción especial que el Eterno otorgó a Moshé en su muerte fue bien merecida, pues Moshé superaba a todos los demás hombres piadosos. Cuando Moshé murió, apareció Adam y dijo: «Yo soy más grande que tú, pues fui creado a imagen del Eterno.» Pero Moshé respondió: «Con todo, yo soy superior a ti, pues la gloria que recibiste del Eterno te fue arrebatada, mientras que yo conservé la radiancia de mi rostro para siempre.»
 

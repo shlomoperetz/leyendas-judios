@@ -1,4 +1,4 @@
-# A WAR FRUSTRATED
+# Una guerra frustrada
 
 Cuando Shimón y Leví hubieron salido de la ciudad, los dos jóvenes que se habían ocultado en los pozos de cal y no fueron muertos entre los habitantes de la ciudad se levantaron, y hallaron la ciudad desolada, sin un solo hombre, tan solo mujeres que lloraban, y alzaron su voz diciendo: «He aquí el mal que han hecho los hijos de Yaakov, que destruyeron una de las ciudades cananeas sin temor alguno de toda la tierra de Canaán.»
 

@@ -1,4 +1,4 @@
-# ESAU'S CAMPAIGN AGAINST JACOB
+# La campaña de Esav contra Yaakov
 
 Cuando Itzjak sintió que su fin se aproximaba, llamó a sus dos hijos junto a sí, les transmitió su última voluntad y testamento, y les otorgó su bendición. Dijo: «Os conjuro por el Nombre excelso, el alabado, honrado, glorioso, inmutable y todopoderoso, Aquel que hizo el cielo y la tierra y todas las cosas en su conjunto, que le temáis y le sirváis, y que cada cual ame a su hermano con misericordia y justicia, y ninguno desee mal al otro, desde ahora y por toda la eternidad, todos los días de vuestra vida, para que gocéis de buena fortuna en todas vuestras empresas y no perezcáis.»
 

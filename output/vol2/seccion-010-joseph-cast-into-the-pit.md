@@ -1,4 +1,4 @@
-# JOSEPH CAST INTO THE PIT
+# Yosef arrojado al pozo
 
 Una vez los hermanos de Yosef condujeron los rebaños de su padre a los pastos de Shjem, y tenían la intención de darse allí al descanso y al placer. Se ausentaron largo tiempo, y ninguna noticia de ellos llegaba. Yaakov comenzó a inquietarse por la suerte de sus hijos. Temía que hubiese estallado una guerra entre ellos y las gentes de Shjem, y resolvió enviar a Yosef para que le trajera noticias de si sus hermanos se hallaban bien. Yaakov deseaba saber también acerca de los rebaños, pues es deber preocuparse por el bienestar de aquello de lo cual uno obtiene sustento. Aunque sabía que el odio de sus hermanos podía acarrearle percances desagradables, Yosef, por reverencia filial, se declaró dispuesto a cumplir el encargo de su padre. Más adelante, cada vez que Yaakov recordaba el espíritu solícito de su querido hijo, la memoria le traspasaba el corazón. Se decía a sí mismo: «Tú conocías el odio de tus hermanos, y sin embargo dijiste: Aquí estoy».
 

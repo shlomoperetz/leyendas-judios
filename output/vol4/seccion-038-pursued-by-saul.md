@@ -1,4 +1,4 @@
-# PURSUED BY SAUL
+# Perseguido por Shaúl
 
 Así como el Eterno estuvo junto a David en su duelo con Goliat, así estuvo junto a él en muchas otras de sus tribulaciones. A menudo, cuando creía toda esperanza perdida, el brazo del Eterno acudía de pronto en su socorro, y por caminos inesperados, no solo trayéndole alivio, sino también transmitiéndole enseñanza sobre la sabia y justa guía con que el Eterno rige el mundo.
 

@@ -1,4 +1,4 @@
-# ABRAHAM VIEWS EARTH AND HEAVEN
+# Avraham contempla la tierra y el cielo
 
 Tras la oración conjunta del arcángel y de Avraham, vino una voz del cielo que dijo: «Avraham, Avraham, he escuchado tu voz y tu plegaria, y te perdono tu pecado, y a aquellos que crees que destruí, los he hecho volver y los he restituido a la vida por Mi infinita bondad, pues por un tiempo los retribuí en juicio, y a aquellos que destruyo mientras viven sobre la tierra, no los retribuiré en la muerte.»
 

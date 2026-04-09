@@ -1,4 +1,4 @@
-# THE SONS OF JACOB AT WAR WITH THE SONS OF ESAU
+# Los hijos de Yaakov en guerra con los hijos de Esav
 
 Habiendo sido sepultado Yaakov con pompa regia, y transcurridos los siete días del período de duelo, el conflicto entre los hijos de Yaakov y los hijos de Esav estalló de nuevo. En la escaramuza que se había producido cuando Esav reclamó un lugar en la Cueva de Majpelá, mientras los restos de su hermano aún yacían sin sepultura, perdió cuarenta de sus hombres, y tras su muerte la fortuna no favoreció más a sus hijos. Ochenta de sus seguidores cayeron muertos, mientras que de los hijos de Yaakov no se perdió ni uno solo. Yosef logró capturar a Tsefó, hijo de Elifaz, junto con cincuenta de sus hombres, y los encadenó y se los llevó a Egipto. Entonces, el resto del ejército atacante, encabezado por Elifaz, huyó al monte Seír, llevando consigo el cadáver decapitado de Esav para enterrarlo en su propio territorio. Los hijos de Yaakov los persiguieron, mas no mataron a ninguno, por respeto a los restos de Esav.
 

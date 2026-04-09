@@ -1,4 +1,4 @@
-# THE WIVES OF THE SONS OF JACOB
+# Las esposas de los hijos de Yaakov
 
 Yehudá fue el primero de los hijos de Yaakov en contraer matrimonio. Tras la venta de Yosef a los midianitas, sus hermanos habían dicho a Yehudá: «Si las circunstancias fueran como antes, nuestro padre nos buscaría esposas. Pero tal como están las cosas, se halla enteramente absorto en su duelo por Yosef, y debemos procurarnos esposas por nuestra cuenta. Tú eres nuestro jefe, y a ti corresponde casarte primero».
 

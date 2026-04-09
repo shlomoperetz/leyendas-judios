@@ -1,4 +1,4 @@
-# THE FIFTH DAY
+# El quinto día
 
 En el quinto día de la creación, el Eterno tomó fuego y agua, y de estos dos elementos hizo los peces del mar. Los animales acuáticos son mucho más numerosos que los terrestres, pues por cada especie en tierra —con la sola excepción de la comadreja— existe una especie correspondiente en el agua, y además hay muchas que solo se hallan en las profundidades.
 

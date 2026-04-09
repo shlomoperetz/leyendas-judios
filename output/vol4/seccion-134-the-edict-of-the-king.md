@@ -1,4 +1,4 @@
-# THE EDICT OF THE KING
+# El edicto del rey
 
 El edicto promulgado contra los judíos fue revocado por Ajashverosh en los siguientes términos:
 

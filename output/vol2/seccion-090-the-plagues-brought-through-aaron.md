@@ -1,4 +1,4 @@
-# THE PLAGUES BROUGHT THROUGH AARON
+# Las plagas ejecutadas por medio de Aharón
 
 Desde el inicio de la primera plaga hasta el paso de la última, tras la cual los egipcios cedieron a cuanto Moshé y Aharón demandaban, transcurrió un año entero, pues doce meses es el plazo que el Eterno fija para la expiación de los pecados. El diluvio duró un año; Iyov padeció un año; los pecadores han de soportar los tormentos del Guehinom durante un año, y el juicio contra Gog al final de los tiempos se ejecutará a lo largo de un año.
 

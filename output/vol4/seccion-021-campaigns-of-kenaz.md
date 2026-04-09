@@ -1,4 +1,4 @@
-# CAMPAIGNS OF KENAZ
+# Las campañas de Kenaz
 
 Tras estos preparativos, Kenaz salió a campaña contra el enemigo con trescientos mil hombres. El primer día dio muerte a ocho mil adversarios, y el segundo día a cinco mil. Mas no todo el pueblo era leal a Kenaz. Algunos murmuraban contra él y, calumniándolo, decían: «Kenaz permanece en su casa mientras nosotros nos exponemos en el campo de batalla.» Los servidores de Kenaz le refirieron estas palabras. Él ordenó que los treinta y siete hombres que habían despotricado contra él fuesen encarcelados, y juró darles muerte si el Eterno le concedía Su auxilio por amor de Su pueblo.
 

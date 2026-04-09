@@ -1,4 +1,4 @@
-# JEHOSHAPHAT AND AHAB
+# Yehoshafat y Ajav
 
 Los sucesores de Omrí y Asá, cada cual a su modo, fueron dignos de sus padres. Yehoshafat, hijo de Asá, era hombre de gran riqueza. Los tesoros que su padre había enviado al soberano arameo retornaron a sus manos como consecuencia de su victoria sobre los amonitas, quienes a su vez habían vencido a los arameos y los habían despojado de sus posesiones. Su poder era descomunal; cada división de su ejército contaba con no menos de ciento sesenta mil guerreros. Con todo, por rico y poderoso que fuese, era tan modesto que rehusaba vestir sus ropas regias cuando acudía a la casa del profeta Elishá para consultarle; se presentaba ante él ataviado como un hombre del pueblo. A diferencia de su padre, que mostraba escasa consideración hacia los eruditos, Yehoshafat era particularmente afable con ellos. Cuando un estudioso comparecía ante él, se ponía en pie, se apresuraba a salir a su encuentro y, besándolo y abrazándolo, lo saludaba diciendo: «¡Rabbí, Rabbí!»
 

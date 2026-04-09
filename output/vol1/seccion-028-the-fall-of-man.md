@@ -1,4 +1,4 @@
-# THE FALL OF MAN
+# La caída del hombre
 
 Entre los animales, la serpiente era notable. De todos ellos, poseía las cualidades más excelentes, y en algunas de ellas se asemejaba al hombre. Como el hombre, se erguía sobre dos pies, y en estatura igualaba al camello. De no haber sido por la caída del hombre, que también acarreó desgracia sobre ellos, un solo par de serpientes habría bastado para realizar todo el trabajo que el hombre debe hacer y, además, le habrían proporcionado plata, oro, gemas y perlas. En verdad, fue precisamente la capacidad de la serpiente lo que condujo a la ruina del hombre y a su propia ruina. Sus dones mentales superiores la llevaron a convertirse en infiel. Ello explica asimismo su envidia del hombre, en particular de sus relaciones conyugales. La envidia la hizo maquinar modos y medios para provocar la muerte de Adam. Conocía demasiado bien el carácter del varón como para intentar ejercer sobre él artes de persuasión, y se acercó a la mujer, sabiendo que las mujeres se dejan engañar con facilidad. La conversación con Javá fue astutamente tramada; era imposible que ella no cayera en la trampa.
 

@@ -1,4 +1,4 @@
-# DAN'S CONFESSION
+# La confesión de Dan
 
 Cuando Dan reunió a su familia al final de sus días, les habló así: «Confieso ante vosotros en este día, hijos míos, que había resuelto dar muerte a Yosef, aquel hombre bueno y recto, y que me regocijé cuando fue vendido, pues su padre lo amaba más que a todos nosotros. El espíritu de la envidia y la soberbia me aguijoneaba, diciendo: "También tú eres hijo de Yaakov", y uno de los espíritus de Beliar me instigó, diciendo: "Toma esta espada y da muerte a Yosef, pues una vez muerto, tu padre te amará a ti." Era el espíritu de la ira el que intentaba persuadirme de aplastar a Yosef, como el leopardo tritura a un cabrito entre sus fauces. Mas el Dios de nuestro padre Yaakov no lo entregó en mi mano ni permitió que lo hallase a solas, ni consintió que yo ejecutara tan impío designio, para que no fueran destruidas dos tribus de Israel.
 

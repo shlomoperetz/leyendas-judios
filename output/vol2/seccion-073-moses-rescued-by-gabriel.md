@@ -1,4 +1,4 @@
-# MOSES RESCUED BY GABRIEL
+# Moshé salvado por Gavriel
 
 Cuando Moshé contaba tres años de edad, Paró se hallaba un día a la mesa; la reina Alfar'anit estaba sentada a su diestra, y su hija Bitiá, con el pequeño Moshé sobre el regazo, a su izquierda; Bilam hijo de Beor, junto con sus dos hijos y todos los príncipes del reino, ocupaban sus asientos ante el rey. Sucedió que el niño tomó la corona de la cabeza del rey y la colocó sobre la suya propia. Al ver aquello, el rey y los príncipes se llenaron de espanto, y cada uno expresó a su turno su asombro. Dijo el rey a los príncipes: «¿Qué decís y qué opináis, oh príncipes, sobre este asunto, y qué ha de hacerse con este niño hebreo a causa de semejante acto?»
 

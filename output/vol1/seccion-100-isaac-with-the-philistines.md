@@ -1,4 +1,4 @@
-# ISAAC WITH THE PHILISTINES
+# Itzjak entre los filisteos
 
 La vida de Itzjak fue un fiel reflejo de la vida de su padre. Avraham tuvo que abandonar su lugar de nacimiento; también Itzjak. Avraham se vio expuesto al riesgo de perder a su esposa; también Itzjak. Los filisteos envidiaron a Avraham; también a Itzjak. Avraham permaneció largo tiempo sin hijos; también Itzjak. Avraham engendró un hijo piadoso y otro malvado; también Itzjak. Y, finalmente, así como en tiempos de Avraham, también en tiempos de Itzjak sobrevino una hambruna sobre la tierra.
 

@@ -1,4 +1,4 @@
-# THE YEARS OF DISFAVOR
+# Los años de desgracia
 
 Aunque el Eterno había revocado ya Su resolución de aniquilar a Israel, no estaba aún del todo reconciliado con ellos, y permanecieron en desgracia durante los años siguientes de su marcha por el desierto, como quedó de manifiesto por diversas circunstancias. Durante aquellos años de disfavor, el viento del norte no sopló, con el resultado de que los niños nacidos en el desierto no pudieron ser circuncidados, pues la ausencia del viento producía una temperatura excesivamente elevada, condición que hacía muy peligroso practicar aquella operación en los pequeños. Como la ley, sin embargo, prohíbe ofrecer el cordero pascual si los varones no han sido circuncidados, Israel no pudo observar debidamente la festividad de Pésaj tras el incidente de los espías.
 

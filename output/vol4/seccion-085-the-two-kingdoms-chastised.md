@@ -1,4 +1,4 @@
-# THE TWO KINGDOMS CHASTISED
+# Los dos reinos castigados
 
 Las naciones paganas asentadas por los asirios en Shomrón en lugar de las Diez Tribus deportadas fueron obligadas por el Eterno a aceptar la religión verdadera de los judíos. No obstante, siguieron rindiendo culto a sus viejos ídolos: los babilonios tributaban devoción a una gallina, los habitantes de Kutá a un gallo, los de Jamat a un carnero; el perro y el asno eran los dioses de los avitas, y la mula y el caballo los dioses de los sefarvitas.
 

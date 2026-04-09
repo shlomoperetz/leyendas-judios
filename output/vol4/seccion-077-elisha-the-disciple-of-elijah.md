@@ -1,4 +1,4 @@
-# ELISHA THE DISCIPLE OF ELIJAH
+# Elishá, el discípulo de Eliyahu
 
 Las voces de los miles de profetas de su tiempo enmudecieron cuando Eliyahu fue trasladado de la tierra al cielo. Con él se desvaneció el espíritu profético de aquellos que en tiempos anteriores no le habían sido en modo alguno inferiores. Elishá fue el único entre ellos cuyas facultades proféticas no menguaron. Antes al contrario, se vieron fortalecidas, en recompensa por la prontitud sin vacilaciones con que obedeció la llamada de Eliyahu, abandonando el campo que estaba arando, y todo cuanto poseía, en favor de la comunidad. Desde entonces permaneció como compañero infatigable de Eliyahu. Cuando el ángel descendió del cielo para llevarse a Eliyahu de la tierra, halló a los dos tan absortos en una docta discusión que no logró atraer su atención, y hubo de regresar sin cumplir su encomienda.
 

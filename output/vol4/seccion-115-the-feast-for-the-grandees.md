@@ -1,4 +1,4 @@
-# THE FEAST FOR THE GRANDEES
+# El banquete para los magnates
 
 El Libro de Ester es el último de los escritos bíblicos. La historia posterior de Israel y todos sus padecimientos solo los conocemos a través de la tradición oral. Por esta razón, la heroína del último libro canónico fue llamada Ester, es decir, Venus, el lucero del alba, que derrama su luz cuando todas las demás estrellas han dejado de brillar y el sol aún tarda en despuntar. Así, las hazañas de la reina Ester proyectan un rayo de luz hacia el porvenir en la historia de Israel, justo en su hora más oscura.
 

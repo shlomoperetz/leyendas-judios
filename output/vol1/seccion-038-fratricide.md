@@ -1,4 +1,4 @@
-# FRATRICIDE
+# El fratricidio
 
 La muerte de Hével a manos de Caín no fue un acontecimiento del todo inesperado para sus padres. En un sueño, Javá había visto la sangre de Hével fluir hacia la boca de Caín, quien la bebía con avidez, aunque su hermano le suplicaba que no la tomase toda. Cuando relató el sueño a Adam, este dijo entre lamentos: «¡Ojalá esto no presagie la muerte de Hével a manos de Caín!». Separó entonces a los dos muchachos, asignando a cada uno morada propia, y a cada cual enseñó un oficio distinto. Caín se hizo labrador de la tierra, y Hével pastor de ovejas. Pero todo fue en vano. Pese a estas precauciones, Caín dio muerte a su hermano.
 

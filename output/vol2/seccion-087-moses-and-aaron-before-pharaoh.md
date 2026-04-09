@@ -1,4 +1,4 @@
-# MOSES AND AARON BEFORE PHARAOH
+# Moshé y Aharón ante el Faraón
 
 El día en que Moshé y Aarón se presentaron ante el Faraón coincidía con el aniversario de su nacimiento, y estaba rodeado de numerosos reyes, pues era el soberano del mundo entero, y aquella era la ocasión en que los reyes de la tierra acudían a rendirle homenaje. Cuando los servidores anunciaron a Moshé y Aarón, el Faraón preguntó si los dos ancianos le habían traído coronas, y al recibir una respuesta negativa, ordenó que no se les permitiera el acceso a su presencia hasta que hubiera recibido y despedido a todos los demás que deseaban presentarle sus respetos.
 

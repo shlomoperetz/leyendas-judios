@@ -1,4 +1,4 @@
-# JEREMIAH'S JOURNEY TO BABYLON
+# El viaje de Yirmeyahu a Babilonia
 
 Acosado de terrores fue el viaje de regreso para el profeta. Por doquier yacían cadáveres, y Yirmiyahu recogía todos los dedos que hallaba esparcidos; los estrechaba contra su corazón, los acariciaba, los besaba y los envolvía en su manto, diciendo con honda tristeza: «¿No os lo dije, hijos míos? ¿No os dije: "Dad gloria al Eterno, vuestro Dios, antes de que Él traiga las tinieblas, y antes de que vuestros pies tropiecen en los montes de oscuridad"?».
 

@@ -1,4 +1,4 @@
-# THE DEATH OF ADAM
+# La muerte de Adam
 
 El último día de la vida de Adam, Eva le dijo: «¿Para qué he de seguir viviendo cuando tú ya no estés? ¿Cuánto tiempo habré de languidecer tras tu muerte? ¡Dímelo!» Adam le aseguró que no tardaría mucho. Morirían juntos y serían sepultados juntos en el mismo lugar. Le ordenó que no tocase su cuerpo hasta que un ángel del Eterno hubiese dispuesto lo necesario, y que comenzase de inmediato a orar al Eterno hasta que el alma escapara de su cuerpo.
 

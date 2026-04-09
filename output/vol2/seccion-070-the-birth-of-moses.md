@@ -1,4 +1,4 @@
-# THE BIRTH OF MOSES
+# El nacimiento de Moshé
 
 Cuando Amram se separó de su esposa a causa del edicto promulgado contra los hijos varones de los hebreos, y todos los israelitas siguieron su ejemplo, su hija Miriam le dijo: «Padre, tu decreto es peor que el decreto del Faraón. Los egipcios pretenden destruir solo a los varones, pero tú incluyes también a las niñas. El Faraón priva a sus víctimas de la vida en este mundo, mas tú impides que los niños nazcan, y así los privas también de la vida futura. Él decreta la destrucción, pero ¿quién sabe si la intención del malvado ha de prevalecer? Tú eres un hombre justo, y las disposiciones de los justos son ejecutadas por el Eterno; por tanto, tu decreto será cumplido.»
 

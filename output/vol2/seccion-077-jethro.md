@@ -1,4 +1,4 @@
-# JETHRO
+# Yitró
 
 En la ciudad de Midián, así llamada por un hijo de Avraham con Keturá, el hombre Yitró había vivido durante muchos años, ejerciendo el servicio sacerdotal ante los ídolos. Con el paso del tiempo, fue convenciéndose cada vez más de la vanidad del culto idolátrico. Su sacerdocio se le tornó repugnante, y resolvió abandonar su cargo. Se presentó ante sus conciudadanos y les dijo: «Hasta ahora he desempeñado vuestro servicio ante los ídolos, mas he envejecido demasiado para las obligaciones del oficio. Elegid, pues, a quien queráis elegir en mi lugar.» Diciendo esto, entregó al pueblo todos los enseres pertenecientes al culto idolátrico y les instó a transferirlos a aquel a quien, según su criterio, confiasen su posición. Sospechando los motivos ocultos de Yitró, el pueblo lo puso bajo anatema, y nadie osaba prestarle el más mínimo servicio. Ni siquiera los pastores apacentaban sus rebaños, y no le quedó más remedio que imponer esta labor a sus siete hijas.
 

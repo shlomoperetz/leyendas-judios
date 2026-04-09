@@ -1,4 +1,4 @@
-# THE TWO ABIJAHS
+# Los dos Ajiyá
 
 Yerovam no abandonó por completo su plan de campaña contra Yehudá, pero este no se llevó a cabo hasta que Aviyá hubo sucedido a su padre Rejavam en el trono de Yerushaláyim. El rey de Yehudá resultó victorioso. Sin embargo, no pudo disfrutar largo tiempo de los frutos de su victoria. Poco después sobrevino su muerte, provocada por sus propios crímenes. En su guerra contra Yerovam se había entregado a una crueldad desmedida: ordenó que los cadáveres del enemigo fueran mutilados y no permitió que recibieran sepultura sino hasta que la putrefacción se hubo apoderado de ellos. Semejante salvajismo resultaba tanto más execrable cuanto que impidió a muchas viudas contraer segundas nupcias. La mutilación de los cadáveres había hecho imposible su identificación, de modo que quedaba en duda si sus esposos se hallaban entre los muertos.
 

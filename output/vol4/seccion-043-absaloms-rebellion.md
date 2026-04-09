@@ -1,4 +1,4 @@
-# ABSALOM'S REBELLION
+# La rebelión de Avshalom
 
 De todos los castigos infligidos a David, ninguno fue tan severo como la rebelión de su propio hijo.
 

@@ -1,4 +1,4 @@
-# JEROBOAM
+# Yeravam
 
 Yerovam fue el verdadero discípulo (6) de este gran profeta. Su doctrina era tan pura como la vestidura nueva que Ajiyá llevaba cuando se encontró con Yerovam cerca de Jerusalén, y su erudición superaba la de todos los sabios de su tiempo, a excepción únicamente de su propio maestro Ajiyá. El profeta tenía por costumbre discutir con Yerovam los secretos del amor y asuntos de la Torá cuya existencia era del todo desconocida para los demás. (7)
 

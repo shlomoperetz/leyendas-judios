@@ -1,4 +1,4 @@
-# MOSES DECLINES THE MISSION
+# Moshé rechaza la misión
 
 Cuando Moshé se apartó del camino para contemplar aquella gran visión —que la zarza no se consumía—, oyó una voz que lo llamaba: «No te acerques más.» Estas palabras pretendían transmitirle que la dignidad que estaba a punto de serle conferida era designio del Eterno para Moshé en persona, no para sus descendientes; y además se le advertía que no se arrogase honores destinados a otros, como el sacerdocio, que habría de pertenecer a Aharón y a los descendientes de Aharón, o la realeza, que habría de corresponder a David y a la casa de David.
 

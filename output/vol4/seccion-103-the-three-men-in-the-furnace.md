@@ -1,4 +1,4 @@
-# THE THREE MEN IN THE FURNACE
+# Los tres hombres en el horno
 
 Durante la ausencia de Daniel, Nevujadnetzar erigió un ídolo y exigió su adoración a todos sus súbditos bajo pena de muerte en la hoguera. La imagen no podía sostenerse en pie debido a la desproporción entre su altura y su grosor. Todo el oro y la plata capturados por los babilonios en Yerushalaim fueron necesarios para darle estabilidad.
 

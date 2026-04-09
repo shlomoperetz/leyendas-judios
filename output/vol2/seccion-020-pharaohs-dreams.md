@@ -1,4 +1,4 @@
-# PHARAOH'S DREAMS
+# Los sueños del Faraón
 
 Hablando con propiedad, Yosef debería haber salido libre de su mazmorra el mismo día que el copero. Para entonces llevaba allí diez años, y había expiado la calumnia que profiriera contra sus diez hermanos. Sin embargo, permaneció en prisión dos años más. «Bienaventurado el hombre que confía en el Eterno, y cuya esperanza es el Eterno», pero Yosef había depositado su confianza en la carne y la sangre. Había rogado al copero mayor que se acordara de él cuando le fuese bien, y que hiciera mención de él ante Paró, mas el copero olvidó su promesa, y por ello Yosef hubo de permanecer en la cárcel dos años más allá de los que originalmente le habían sido asignados. El copero no lo había olvidado intencionadamente, sino que fue decreto del Eterno que su memoria le fallara. Cuando se decía a sí mismo: «Si sucede tal o cual cosa, recordaré el caso de Yosef», las circunstancias que había imaginado se invertían sin falta, y si hacía un nudo como recordatorio, venía un ángel y deshacía el nudo, y Yosef no acudía a su mente.
 

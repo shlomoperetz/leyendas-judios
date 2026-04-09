@@ -1,4 +1,4 @@
-# THE REDEMPTION OF ISRAEL FROM EGYPTIAN BONDAGE
+# La redención de Israel de la esclavitud egipcia
 
 Paró se levantó en la noche de la muerte de los primogénitos. No esperó a la tercera hora de la mañana, cuando los reyes suelen despertar, ni aguardó a que vinieran a despertarlo, sino que él mismo arrancó del sueño a sus siervos, y a todos los demás egipcios, y juntos salieron en busca de Moshé y Aharón. Sabía que Moshé jamás había dicho una palabra falsa, y puesto que había declarado: «No volveré a ver tu rostro», no podía contar con que Moshé acudiera a él. No le quedaba más remedio que ir en busca del líder israelita. No sabía dónde vivía Moshé, y tuvo grandes dificultades y perdió mucho tiempo buscando su casa, pues los muchachos hebreos a quienes preguntaba cuando los encontraba por las calles le gastaban bromas pesadas, lo enviaban en dirección equivocada y lo hacían extraviarse. Así vagó largo rato, llorando y clamando sin cesar: «¡Oh, mi amigo Moshé, ruega por mí al Eterno!».
 

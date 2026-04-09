@@ -1,4 +1,4 @@
-# ASMODEUS
+# Asmodeo
 
 Cuando Shelomó, en su riqueza y prosperidad, se olvidó de su Dios y, contraviniendo los preceptos establecidos para los reyes en la Torá, multiplicó para sí las esposas y codició la posesión de muchos caballos y mucho oro, el Libro de Devarim se presentó ante el Eterno y dijo: «He aquí, Señor del universo, que Shelomó pretende arrancar una Yod de mí, pues Tú escribiste: "El rey no multiplicará para sí caballos, ni multiplicará para sí esposas, ni acumulará en demasía plata y oro"; pero Shelomó ha adquirido muchos caballos, muchas esposas y mucha plata y oro.» A lo cual respondió el Eterno: «Por tu vida, Shelomó y cien como él serán aniquilados antes de que una sola de tus letras sea borrada.»
 

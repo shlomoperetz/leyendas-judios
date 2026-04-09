@@ -1,4 +1,4 @@
-# THE JOURNEY TO MORIAH
+# El camino hacia Moriá
 
 Y el Eterno quiso poner a prueba a Avraham y a Itzjak en este asunto. Y dijo a Avraham: «Toma ahora a tu hijo.»
 

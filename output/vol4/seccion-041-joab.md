@@ -1,4 +1,4 @@
-# JOAB
+# Yoav
 
 Yoav, el guerrero, era en todo lo esencial un contraste con Ajitofel. Fue él la mano derecha de David. Se decía que, de no haber estado Yoav allí para conducir sus guerras, David no habría tenido el sosiego necesario para consagrarse al estudio de la Torá. Era el modelo del verdadero héroe judío, distinguido a un mismo tiempo por su erudición, su piedad y su bondad. Su casa permanecía abierta de par en par para todo el que llegase, y las campañas que emprendía redundaban invariablemente en beneficio del pueblo. A él le debían incluso sus lujos, y más aún: velaba por el bienestar de los eruditos, siendo él mismo presidente del Sanedrín.
 

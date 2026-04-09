@@ -1,4 +1,4 @@
-# THE THIEF CAUGHT
+# El ladrón atrapado
 
 Aún no se habían alejado mucho de las puertas de la ciudad cuando Yosef despachó a Menashé, el mayordomo de su casa, para que fuera tras ellos y buscara la copa de plata que había ocultado en el saco de Binyamín. Conocía bien a sus hermanos y no se atrevió a dejarlos avanzar demasiado lejos de la ciudad antes de intentar forzar su regreso. Confiaba en que la cercanía de la ciudad los intimidaría y los haría acatar sus órdenes. Menashé recibió, pues, la instrucción de detenerlos: con palabras amables si podía, o con palabras duras si era menester, y conducirlos de vuelta a la ciudad. Obró conforme a lo mandado. Cuando los hermanos oyeron la acusación de robo, dijeron: «Aquel de tus siervos en cuyo poder se halle la copa, que muera, y también nosotros seremos esclavos de mi señor.» Y Menashé respondió: «Como decís, así sería justo proceder, pues si diez personas son acusadas de robo y el objeto hurtado se encuentra en poder de una de ellas, todas son tenidas por responsables. Mas no seré tan severo. Aquel en cuyo poder se halle la copa será mi esclavo, y los demás quedaréis libres de culpa.»
 

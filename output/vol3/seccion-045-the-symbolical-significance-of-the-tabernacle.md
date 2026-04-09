@@ -1,4 +1,4 @@
-# THE SYMBOLICAL SIGNIFICANCE OF THE TABERNACLE
+# El significado simbólico del Tabernáculo
 
 Las partes separadas del Tabernáculo tenían cada una un significado simbólico, pues a todo cuanto existe en lo alto corresponde algo aquí abajo. Hay estrellas en las alturas, pero también abajo, donde «una estrella saldrá de Yaakov»; el Eterno tiene Sus huestes en lo alto, y asimismo abajo, Su pueblo Israel, «las huestes del Eterno»; arriba hay Ofannim, y en la tierra hay igualmente un Ofán; arriba tiene el Eterno Sus Querubines, y abajo también, en el santuario de Israel; el Eterno tiene Su morada en las alturas, pero igualmente abajo; y, por último, el Eterno extendió los cielos en lo alto como una cortina, y abajo, en el santuario, había cortinas de pelo de cabra.
 

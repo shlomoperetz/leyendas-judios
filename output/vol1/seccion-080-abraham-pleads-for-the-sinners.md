@@ -1,4 +1,4 @@
-# ABRAHAM PLEADS FOR THE SINNERS
+# Avraham intercede por los pecadores
 
 Cuando el Eterno vio que no había hombre justo alguno entre los habitantes de las ciudades pecadoras, ni lo habría entre sus descendientes, por cuyos méritos pudieran los demás recibir trato de indulgente consideración, resolvió aniquilarlos a todos sin excepción. Mas antes de que el juicio fuese ejecutado, el Eterno dio a conocer a Avraham lo que habría de hacer con Sedom, Amorá y las demás ciudades de la llanura, pues formaban parte de Canaán, la tierra prometida a Avraham, y por ello dijo el Eterno: «No las destruiré sin el consentimiento de Avraham.»
 

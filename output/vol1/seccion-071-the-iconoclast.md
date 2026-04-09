@@ -1,4 +1,4 @@
-# THE ICONOCLAST
+# El iconoclasta
 
 Pero Téraj no se dejó convencer, y en respuesta a la pregunta de Avraham sobre quién era el el Eterno que había creado el cielo y la tierra y a los hijos de los hombres, lo condujo a la sala donde se alzaban doce grandes ídolos y un gran número de ídolos menores, y señalándolos dijo: «He aquí a quienes hicieron todo cuanto ves sobre la tierra, a quienes nos crearon también a mí y a ti y a todos los hombres sobre la tierra», y se postró ante sus dioses y abandonó la sala con su hijo.
 

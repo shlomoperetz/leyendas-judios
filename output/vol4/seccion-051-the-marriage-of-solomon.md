@@ -1,4 +1,4 @@
-# THE MARRIAGE OF SOLOMON
+# El matrimonio de Salomón
 
 La fiesta nupcial de Shelomó en celebración de su matrimonio con la princesa egipcia cayó el mismo día que la consagración del Templo. El regocijo por las bodas del rey fue mayor que por la culminación del Templo. Bien dice el proverbio: «Todos adulan al rey». Fue entonces cuando el Eterno concibió el designio de destruir Yerushaláyim. Tal como habló el profeta: «Esta ciudad ha sido para mí provocación de mi ira y de mi furor desde el día en que la edificaron hasta el día de hoy».
 

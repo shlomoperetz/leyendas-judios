@@ -1,4 +1,4 @@
-# BALAAM WITH BALAK
+# Bilam con Balak
 
 Siempre que el Eterno deseaba humillar a un malhechor, primero lo exaltaba para llenarlo de orgullo. Así también humilló a Bilam tras haberlo exaltado, pues al principio Balak le había enviado príncipes de escasa distinción, ante lo cual Eterno le dijo: «No irás con ellos.» Mas cuando le envió numerosos príncipes de gran renombre, el Eterno dijo a Bilam: «Ve con ellos,» pero aquel viaje no le trajo sino humillación y ruina, pues le aconteció conforme al proverbio: «Antes del quebranto va la soberbia, y antes de la caída, la altivez de espíritu.» Así obral Eterno para que los hombres no puedan decir: «¿A quién ha destruido el Eterno? Sin duda a una persona insignificante,» y por ello exalta a los pecadores antes de su caída.
 

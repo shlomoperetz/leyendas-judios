@@ -1,4 +1,4 @@
-# ALLOTMENT OF THE LAND
+# El reparto de la Tierra
 
 Tras siete años de guerra, Yehoshúa pudo al fin aventurarse a repartir la tierra conquistada entre las tribus. Este fue el procedimiento que siguió. El sumo sacerdote Elazar, acompañado por Yehoshúa y todo el pueblo, y revestido con el Urim y el Tumim, se colocó ante dos urnas. Una de las urnas contenía los nombres de las tribus, y la otra los nombres de los distritos en que se había dividido la tierra. El espíritu santo lo movió a exclamar: «¡Zevulún!». Cuando introdujo la mano en la primera urna, he aquí que extrajo la palabra Zevulún, y de la otra surgió la palabra Akó, designando el distrito de Akó. Así ocurrió con cada tribu sucesivamente. A fin de que las fronteras permanecieran fijas, Yehoshúa había mandado plantar la jazuvá entre los distritos. Una vez que la cepa de esta planta se arraiga en un lugar, solo puede ser extirpada con enorme dificultad. El arado podrá trazar surcos profundos sobre ella, y aun así brota de nuevo y crece entre el grano, señalando todavía las antiguas líneas divisorias.
 

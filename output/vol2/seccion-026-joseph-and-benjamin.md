@@ -1,4 +1,4 @@
-# JOSEPH AND BENJAMIN
+# Yosef y Binyamín
 
 Grande fue el gozo de Yosef cuando sus hermanos comparecieron ante él y Binyamín venía con ellos. En su hermano menor contempló el fiel trasunto de su padre. Ordenó a su hijo Menashé, mayordomo de su casa, que condujera a los hombres al palacio y dispusiera un banquete para ellos. Mas debía cuidar de preparar los platos de carne en presencia de los huéspedes, para que vieran con sus propios ojos que el ganado había sido sacrificado conforme a las prescripciones rituales, y que el tendón del muslo que se halla sobre la articulación de la cadera había sido retirado.
 

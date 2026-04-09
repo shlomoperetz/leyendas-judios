@@ -1,4 +1,4 @@
-# THE 'AKEDAH
+# La Akedá
 
 Y mientras caminaban juntos, Itzjak habló a su padre: «He aquí el fuego y la leña, mas ¿dónde está el cordero para el holocausto ante el Eterno?» Y Avraham respondió a Itzjak diciendo: «El Eterno te ha escogido a ti, hijo mío, como holocausto perfecto, en lugar del cordero.» E Itzjak dijo a su padre: «Haré todo cuanto el Eterno te ha dicho con gozo y alegría de corazón.» Y Avraham volvió a decir a Itzjak, su hijo: «¿Hay acaso en tu corazón algún pensamiento o designio tocante a esto que no sea recto? Dímelo, hijo mío, te lo ruego. Oh, hijo mío, no me lo ocultes.» E Itzjak respondió: «Vive el Eterno, y vive tu alma, que no hay nada en mi corazón que me haga desviar ni a diestra ni a siniestra de la palabra que Él te ha dicho. Ni miembro ni músculo se ha movido ni estremecido por causa de esto, ni hay en mi corazón pensamiento alguno ni mal designio al respecto. Antes bien, gozoso y alegre de corazón estoy en este asunto, y digo: Bendito sea el Eterno, que en este día me ha escogido para ser holocausto ante Él.»
 

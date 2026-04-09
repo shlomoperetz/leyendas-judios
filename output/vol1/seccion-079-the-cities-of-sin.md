@@ -1,4 +1,4 @@
-# THE CITIES OF SIN
+# Las ciudades del pecado
 
 Los habitantes de Sodoma y Gomorra, así como los de las otras tres ciudades de la llanura, eran pecadores e impíos. En su comarca se extendía un amplio valle donde cada año se congregaban con sus mujeres, sus hijos y todo cuanto les pertenecía, para celebrar una fiesta que duraba varios días y consistía en las orgías más repugnantes. Si un mercader forastero atravesaba su territorio, lo asediaban todos ellos, grandes y pequeños por igual, y lo despojaban de cuanto poseía. Cada uno se apropiaba de una bagatela, hasta que el viajero quedaba enteramente desvalijado. Si la víctima se atrevía a protestar ante uno u otro, este le mostraba que solo había tomado una fruslería, indigna siquiera de mención. Y el desenlace era que lo expulsaban de la ciudad a empellones.
 

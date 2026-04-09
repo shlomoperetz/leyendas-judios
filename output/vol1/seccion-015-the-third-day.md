@@ -1,4 +1,4 @@
-# THE THIRD DAY
+# El tercer día
 
 Hasta ese momento la tierra era una llanura enteramente cubierta de agua. Apenas se dejaron oír las palabras del Eterno —«Reúnanse las aguas en un solo lugar»—, aparecieron montañas por doquier y colinas, y el agua se recogió en las cuencas profundas. Mas el agua se mostró rebelde: resistió la orden de ocupar los lugares bajos y amenazó con anegar la tierra, hasta que el Eterno la forzó a retroceder hacia el mar y ciñó el mar con arena. Ahora, cada vez que el agua se ve tentada a traspasar sus límites, contempla la arena y retrocede.
 

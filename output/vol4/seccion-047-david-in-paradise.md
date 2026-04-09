@@ -1,4 +1,4 @@
-# DAVID IN PARADISE
+# David en el Paraíso
 
 La muerte de David no significó el fin de su gloria y grandeza. Apenas provocó un cambio de escenario. En el reino celestial, como en la tierra, David ocupa un lugar entre los primeros. La corona que ciñe su cabeza resplandece por encima de todas las demás, y cada vez que sale del Paraíso para presentarse ante el Eterno, soles, estrellas, ángeles, serafines y otras criaturas santas acuden a su encuentro. En la sala del tribunal celestial se erige para él un trono de fuego de dimensiones colosales, situado directamente frente al trono del Eterno. Sentado en ese trono y rodeado por los reyes de la casa de David y otros reyes israelitas, entona salmos de una belleza prodigiosa. Al final cita siempre el versículo: «El Eterno reina por los siglos de los siglos», a lo cual el arcángel Metatrón y quienes lo acompañan responden: «¡Santo, santo, santo es el Eterno de los Ejércitos!» Esta es la señal para que las santas Jayot y el cielo y la tierra se sumen a la alabanza. Finalmente, los reyes de la casa de David entonan el versículo: «Y el Eterno será rey sobre todo; en aquel día el Eterno será uno, y uno será Su Nombre.»
 

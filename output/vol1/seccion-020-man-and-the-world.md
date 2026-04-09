@@ -1,4 +1,4 @@
-# MAN AND THE WORLD
+# El hombre y el mundo
 
 Con diez Pronunciamientos creó el Eterno el mundo, aunque un solo Pronunciamiento habría bastado. Quiso el Eterno dar a conocer cuán severo es el castigo que habrá de imponerse a los malvados, que destruyen un mundo creado con nada menos que diez Pronunciamientos, y cuán generosa la recompensa destinada a los justos, que preservan un mundo creado con nada menos que diez Pronunciamientos.
 

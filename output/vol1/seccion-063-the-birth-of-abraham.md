@@ -1,4 +1,4 @@
-# THE BIRTH OF ABRAHAM
+# El nacimiento de Avraham
 
 Téraj desposó a Emtelai, hija de Karnabo, y el fruto de su unión fue Avraham. Su nacimiento había sido leído en las estrellas por Nimrod, pues aquel rey impío era un astrólogo sagaz, y le resultaba manifiesto que en sus días nacería un hombre que se alzaría contra él y daría un triunfante mentís a su religión. Aterrorizado por el destino que los astros le presagiaban, mandó llamar a sus príncipes y gobernadores y les pidió consejo en el asunto. Ellos respondieron y dijeron: «Nuestro consejo unánime es que mandes edificar una gran casa, apostes una guardia a su entrada y hagas saber en todo tu reino que cuantas mujeres encinta han de acudir allí junto con sus parteras, las cuales permanecerán con ellas cuando den a luz. Cuando se cumplan los días de la mujer y nazca la criatura, será deber de la partera darle muerte si fuere varón. Mas si la criatura fuere niña, se la dejará con vida, y la madre recibirá presentes y vestiduras costosas, y un heraldo proclamará: "¡Así se hace con la mujer que da a luz una hija!"».
 

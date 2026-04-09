@@ -1,4 +1,4 @@
-# THE BABE PROCLAIMS GOD
+# El niño reconoce al Eterno
 
 Así fue como Avraham quedó abandonado en la cueva, sin nodriza alguna, y comenzó a llorar. El Eterno envió al ángel Gavriel para que le diera leche de beber, y el ángel hizo que esta manara del dedo meñique de la mano derecha del niño, y de él mamó hasta cumplir diez días de vida. Entonces se levantó y echó a andar, y salió de la cueva, y caminó por la orilla del valle. Cuando el sol se puso y las estrellas aparecieron, dijo: «¡Estos son los dioses!». Mas llegó el alba, y las estrellas dejaron de verse, y entonces dijo: «No he de rendir culto a estas, pues no son dioses». Acto seguido salió el sol, y habló: «Este es mi dios, a él ensalzaré». Pero de nuevo se puso el sol, y dijo: «No es dios», y al contemplar la luna, la llamó su diosa, a quien tributaría homenaje divino. Mas también la luna se oscureció, y clamó: «¡Tampoco esta es dios! Hay Uno que a todos los pone en movimiento».
 

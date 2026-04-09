@@ -1,4 +1,4 @@
-# THE DAUGHTERS OF ZELOPHEHAD
+# Las hijas de Tzelofejad
 
 Pero hubo otro propósito, además del de establecer la pureza familiar de Israel, en la realización del censo en Arbot Moav. Pues cuando el Eterno, al salir de Egipto, puso a Su pueblo en manos de Moshé, se los confió tras haberlos contado, y ahora que Moshé estaba a punto de partir de este mundo, quiso devolver el rebaño que el Eterno le había encomendado, debidamente contado, a las manos del Eterno.
 

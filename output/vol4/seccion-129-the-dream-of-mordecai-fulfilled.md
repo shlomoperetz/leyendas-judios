@@ -1,4 +1,4 @@
-# THE DREAM OF MORDECAI FULFILLED
+# El sueño de Mordejai se cumple
 
 Ester, que nada sabía de cuanto acontecía en la corte, se alarmó sobremanera cuando sus sirvientas le comunicaron que Mordejai había aparecido en los recintos del palacio vestido de cilicio y cubierto de ceniza. Tan grande fue el espanto que la sobrecogió, que se vio privada de los gozos de la maternidad que había aguardado con dichosa expectación. Envió vestiduras a Mordejai, quien, no obstante, rehusó despojarse de su atuendo de duelo hasta que el Eterno permitiera que se obraran milagros en favor de Israel, siguiendo en ello el ejemplo de hombres tan grandes de Israel como Yaakov, David y Ajav, así como el de los habitantes gentiles de Nínive en tiempos de Yoná. De ningún modo habría de ataviarse con ropas cortesanas mientras su pueblo se hallara expuesto a un sufrimiento seguro. La reina mandó llamar a Daniel, llamado también Hataj en las Escrituras, y le encomendó que averiguase por boca de Mordejai la causa de su duelo.
 

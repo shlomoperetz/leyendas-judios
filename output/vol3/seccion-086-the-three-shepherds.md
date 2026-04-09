@@ -1,4 +1,4 @@
-# THE THREE SHEPHERDS
+# Los tres pastores
 
 Aharón murió cuatro meses después de la muerte de su hermana Miriam, mientras que Moshé murió casi un año después de ella. La muerte de Miriam tuvo lugar el primer día de Nisán, y la de Moshé el séptimo día de Adar del mismo año. Aunque la muerte de estos tres no aconteció en el mismo mes, el Eterno habló de ellos diciendo: «Y eliminé a los tres pastores en un solo mes», pues había decretado su muerte en un mismo mes. Es costumbre del Eterno clasificar a las personas en grupos afines, y la muerte de estos tres justos no fue decretada junto con la de la generación pecadora de errantes por el desierto, sino que solo después de que aquella generación hubo perecido quedó sellado el destino de los tres. Miriam murió primero, y la misma suerte fue decretada para sus hermanos como consecuencia de su muerte.
 

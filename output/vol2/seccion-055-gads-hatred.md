@@ -1,4 +1,4 @@
-# GAD'S HATRED
+# El odio de Gad
 
 En el año ciento veinticinco de su vida, Gad reunió a sus hijos y les habló así: «Soy el noveno hijo de Yaakov, y fui un valiente pastor de rebaños. Guardaba los ganados, y cuando un león o cualquier otra fiera se acercaba, yo la perseguía, la asía por la pata, la arrojaba a una distancia de un tiro de piedra y así la mataba. En cierta ocasión, durante treinta días, Yosef apacentó los rebaños con nosotros, y al regresar junto a nuestro padre, le contó que los hijos de Zilpá y Bilhá sacrificaban las mejores reses del ganado y consumían la carne sin conocimiento de Reuvén ni de Yehudá. Dijo haber visto cómo yo arrebataba un cordero de las fauces de un oso, mataba al oso y degollaba al cordero, pues estaba demasiado malherido para sobrevivir. Me llené de ira contra Yosef por su afán delator, hasta que fue vendido a Egipto. No quería mirarlo ni oír cosa alguna acerca de él, pues en nuestra propia cara nos reprochaba haber comido el cordero sin pedir antes permiso a Yehudá. Y todo cuanto Yosef contaba a nuestro padre, este lo creía.
 

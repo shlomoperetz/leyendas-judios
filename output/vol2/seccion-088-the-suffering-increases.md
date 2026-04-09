@@ -1,4 +1,4 @@
-# THE SUFFERING INCREASES
+# El sufrimiento se acrecienta
 
 Además de negarse a dejar partir a los hijos de Israel, el mismo día en que Moshé y Aharón comparecieron ante él, ordenó que se exigiera al pueblo entregar la cuota prescrita de ladrillos, aunque los capataces ya no les proporcionarían paja como hasta entonces para fabricarlos. Otro decreto estableció que no se permitiría a los hijos de Israel descansar en Shabat, pues el faraón sabía que aprovechaban el descanso para leer los rollos que describían su redención. Todo esto formaba parte del designio del Eterno: la opresión de Israel había de recrudecerse cuanto más se aproximara el final. Mientras vagaban de un extremo a otro de la tierra de Egipto recogiendo la paja que necesitaban para completar la cuota de ladrillos, los egipcios los maltrataban si los hallaban en sus campos. Tales actos de crueldad, perpetrados por todo el pueblo, hacían imposible que la culpa entera de la esclavitud de Israel recayese únicamente sobre el faraón. Todos los egipcios se mostraron despiadados con los israelitas durante sus expediciones en busca de paja, y por eso el castigo divino descendió sobre todos por igual.
 

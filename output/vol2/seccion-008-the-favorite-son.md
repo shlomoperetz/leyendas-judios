@@ -1,4 +1,4 @@
-# THE FAVORITE SON
+# El hijo predilecto
 
 Yaakov no estuvo exento de la suerte que corresponde a todos los justos. Cada vez que estos esperan gozar de la vida en tranquilidad, el Satán se lo impide. Se presenta ante el Eterno y dice: «¿Acaso no basta con que el mundo venidero esté reservado para los justos? ¿Con qué derecho pretenden disfrutar también de este mundo?». Tras las muchas penalidades y conflictos que habían sembrado el camino de Yaakov, este pensó que al fin podría descansar, mas entonces sobrevino la pérdida de Yosef y le infligió el más agudo de los sufrimientos. En verdad, pocos y aciagos habían sido los días de los años de la peregrinación de Yaakov, pues el tiempo transcurrido fuera de la Tierra Santa se le había antojado desprovisto de alegría. Solo la porción de su vida transcurrida en la tierra de sus padres, durante la cual se consagró a hacer prosélitos, conforme al ejemplo que le legaron Avraham e Itzjak, la consideraba digna de haber sido vivida, y aquel tiempo dichoso fue de corta duración. Cuando Yosef le fue arrebatado, apenas habían transcurrido ocho años desde su regreso a la casa paterna.
 

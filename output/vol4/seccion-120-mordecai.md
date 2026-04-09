@@ -1,4 +1,4 @@
-# MORDECAI
+# Mordejai
 
 Mordejai pertenecía a la más alta aristocracia de Yerushaláim —era de sangre real— y fue deportado a Babilonia junto con el rey Yejoniá por Nevujadnetzar, quien en aquel tiempo solo exilió a los grandes del país. Más tarde regresó a la Tierra de Israel, pero permaneció allí solo un tiempo. Prefirió vivir en la Diáspora y velar por la educación de Ester. Cuando Koresh y Darío capturaron Babilonia, Mordejai, Daniel y la comunidad judía de la ciudad conquistada acompañaron al rey Koresh a Shushán, donde Mordejai estableció su academia.
 

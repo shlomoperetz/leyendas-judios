@@ -1,4 +1,4 @@
-# JOSEPH'S KINDNESS AND GENEROSITY
+# La bondad y la generosidad de Yosef
 
 Yaakov y su familia se establecieron entonces en la tierra de Goshen, y Yosef los proveyó de cuanto necesitaban, no solo de comida y bebida, sino también de vestimenta, y en su amor y bondad agasajaba a su padre y a sus hermanos cada día en su propia mesa. Desterró de su mente el agravio que sus hermanos le habían infligido y rogó a su padre que orase al Eterno por ellos, para que les perdonara su gran transgresión. Conmovido por tan noble muestra de amor, Yaakov exclamó: «¡Oh Yosef, hijo mío, has conquistado el corazón de tu padre Yaakov!».
 

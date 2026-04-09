@@ -1,4 +1,4 @@
-# THE SUN OBEYS JOSHUA
+# El sol obedece a Yehoshúa
 
 La tarea de proteger a los guivonitas, conforme a la alianza ofensiva y defensiva que con ellos se había establecido, la cumplió Yehoshúa escrupulosamente. Había vacilado por un instante sobre si debía acudir en auxilio de los guivonitas en su aflicción, mas las palabras del Eterno bastaron para devolverlo a su deber. Díjole el Eterno: «Si no acercas a los que están lejos, acabarás por apartar a los que están cerca.» (37) El Eterno concedió a Yehoshúa un favor singular en su contienda contra los asaltantes de los guivonitas. Las piedras ardientes de granizo que, por intercesión de Moshé, habían quedado suspendidas en el aire cuando estaban a punto de caer sobre los egipcios, fueron ahora arrojadas sobre los cananeos. (38) Entonces aconteció el gran prodigio de la detención del sol, el sexto (39) entre los grandes prodigios desde la creación del mundo.
 

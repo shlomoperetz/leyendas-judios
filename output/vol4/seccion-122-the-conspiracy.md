@@ -1,4 +1,4 @@
-# THE CONSPIRACY
+# La conspiración
 
 Cierta vez tuvo lugar la siguiente conversación entre Ajashverosh y Ester. El rey preguntó a Ester: «¿De quién eres hija?»
 

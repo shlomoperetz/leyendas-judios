@@ -1,4 +1,4 @@
-# ELIJAH AND THE ANGEL OF DEATH
+# Eliyahu y el Ángel de la Muerte
 
 Entre las muchas obras benéficas de Eliyahu, mención especial merece el rescate de aquellos a quienes un decreto celestial condenaba a caer en las garras del Ángel de la Muerte. Llevaba a cabo estos rescates advirtiendo a las víctimas señaladas de su destino inminente y exhortándolas a realizar buenas acciones, que habrían de servirles de protección contra la muerte.
 

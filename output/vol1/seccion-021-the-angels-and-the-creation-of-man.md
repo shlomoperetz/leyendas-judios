@@ -1,4 +1,4 @@
-# THE ANGELS AND THE CREATION OF MAN
+# Los ángeles y la creación del hombre
 
 El Eterno, en Su sabiduría, habiendo resuelto crear al hombre, pidió consejo a todos cuantos le rodeaban antes de proceder a ejecutar Su propósito, ejemplo para el hombre de que, por grande y distinguido que sea, no debe desdeñar el consejo del humilde y el pequeño. Primero convocó el Eterno al cielo y a la tierra, luego a todas las demás cosas que había creado, y por último a los ángeles.
 

@@ -1,4 +1,4 @@
-# JUDAH PLEADS AND THREATENS.
+# Yehudá suplica y amenaza
 
 Yosef despidió a sus hermanos y se llevó a Binyamín por la fuerza, encerrándolo en una cámara. Pero Yehudá derribó la puerta y se presentó ante Yosef junto con sus hermanos. Resolvió emplear por turno los tres medios de que disponía para liberar a Binyamín. Estaba dispuesto a convencer a Yosef mediante argumentos, a conmoverlo con súplicas o a recurrir a la fuerza para lograr su propósito.
 

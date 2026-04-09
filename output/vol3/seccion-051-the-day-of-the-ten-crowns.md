@@ -1,4 +1,4 @@
-# THE DAY OF THE TEN CROWNS
+# El día de las diez coronas
 
 El primer día de Nisán fue un día colmado de acontecimientos, «un día que se distinguió por diez coronas». Fue el día en que los príncipes de las tribus comenzaron a presentar sus ofrendas; fue el primer día en que la Shejiná descendió para morar entre Israel; el primer día en que se prohibió ofrecer sacrificios fuera del lugar designado; el primer día en que los sacerdotes otorgaron su bendición sobre Israel; el primer día del servicio sacrificial regular; el primer día en que los sacerdotes participaron de ciertas porciones de la ofrenda; el primer día en que el fuego celestial se manifestó sobre el altar; fue además el primer día de la semana, un domingo, primer día del primer mes del año.
 

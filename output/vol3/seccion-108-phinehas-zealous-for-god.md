@@ -1,4 +1,4 @@
-# PHINEHAS, ZEALOUS FOR GOD
+# Pinjas, celoso por el Eterno
 
 Cuando la desvergüenza del pueblo se fue extendiendo cada vez más, el Eterno ordenó a Moshé que designara jueces para castigar a los pecadores, y como resultaba difícil descubrirlos mediante testigos, el Eterno los señaló haciendo que la nube de gloria que se extendía sobre el campamento de Israel desapareciera de encima de los transgresores. Quienes no estaban cubiertos por la nube de gloria quedaban así claramente señalados como pecadores. El Eterno designó como jueces y ejecutores a los setenta y ocho mil seiscientos oficiales del pueblo, dándoles la orden de que cada uno de ellos ejecutara a dos pecadores. Estos cumplieron el mandato de Moshé y lapidaron a los pecadores, cuyos cadáveres fueron luego colgados en la horca durante unos breves instantes. Tal era el castigo prescrito por la ley, pues aquellos transgresores no solo habían fornicado con las mujeres de Moav, sino que habían rendido culto al ídolo moavita Peor; y la idolatría se castiga con muerte por lapidación.
 

@@ -1,4 +1,4 @@
-# WEALTH THAT BRINGETH DESTRUCTION
+# La riqueza que trae destrucción
 
 Tres dones otorgó el Eterno al mundo: sabiduría, fuerza y riqueza. Cuando provienen del Eterno, son bendición; de lo contrario, acarrean ruina. Tuvo el mundo dos grandes sabios: Bilam entre los gentiles y Ajitófel entre los judíos, mas ambos, a causa de su sabiduría, perdieron tanto este mundo como el venidero. Hubo dos grandes héroes en el mundo: Shimshón en Israel y Goliat entre los gentiles, mas ambos hallaron la muerte a causa de su fuerza. Hubo dos hombres acaudalados en el mundo: Córaj entre los judíos y Hamán entre los gentiles, y ambos perecieron a causa de su riqueza. Suerte semejante corrieron las dos tribus y media que permanecieron en la ribera oriental del Yardén. Estas se habían enriquecido sobremanera en ganado gracias al botín de los midianitas, y por ello prefirieron como herencia las tierras de pasto de la ribera oriental del Yardén. Mas con el tiempo su riqueza les acarreó destrucción, pues al apartarse de sus hermanos, fueron después los primeros en ser expulsados de su morada y arrojados al exilio.
 

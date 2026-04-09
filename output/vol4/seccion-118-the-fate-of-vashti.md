@@ -1,4 +1,4 @@
-# THE FATE OF VASHTI
+# El destino de Vashtí
 
 Aunque Ajashverosh había tomado toda precaución para evitar los excesos desmedidos con el vino, su banquete puso de manifiesto la diferencia esencial entre las festividades judías y las paganas. Cuando los judíos se congregan en torno a una mesa festiva, discuten una Halajá, o una Hagadá, o al menos un simple versículo de las Escrituras. Ajashverosh y sus compañeros de juerga coronaron el banquete con conversaciones lascivas. Los persas ensalzaban los encantos de las mujeres de su pueblo, mientras los medos no admitían que ninguna fuera superior a las mujeres de Media. Entonces «el necio» Ajashverosh se levantó y habló: «Mi esposa no es persa ni meda, sino caldea, y sin embargo aventaja a todas en hermosura. ¿Queréis convenceros de la verdad de mis palabras?». «¡Sí!», vociferó la concurrencia, sumida ya en los vapores del vino, «pero para que podamos juzgar debidamente sus encantos naturales, que se presente ante nosotros sin adorno alguno, sí, despojada de toda vestidura», y Ajashverosh accedió a la vergonzosa condición.
 

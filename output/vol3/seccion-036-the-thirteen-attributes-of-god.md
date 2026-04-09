@@ -1,4 +1,4 @@
-# THE THIRTEEN ATTRIBUTES OF GOD
+# Los trece atributos del Eterno
 
 La cueva en la que Moshé se ocultó mientras el Eterno pasaba en revista ante él con Su séquito celestial era la misma en la que Eliyahu se alojó cuando el Eterno se le reveló en el Horeb. Si hubiese habido en ella una abertura, aunque fuera tan diminuta como la punta de una aguja, tanto Moshé como Eliyahu habrían sido consumidos por la luz divina que pasaba, cuya intensidad era tan grande que Moshé, aun estando completamente encerrado en la cueva, alcanzó no obstante a captar su reflejo, de suerte que por aquel resplandor su rostro comenzó a brillar. No sin gran peligro, empero, obtuvo Moshé tal distinción; pues tan pronto como los ángeles oyeron que Moshé pedía al Eterno que le mostrase Su gloria, se encolerizaron sobremanera contra él y dijeron al Eterno: «Nosotros, que Te servimos noche y día, no podemos contemplar Tu gloria, ¿y este, nacido de mujer, pretende verla?» En su ira se dispusieron a dar muerte a Moshé, quien ciertamente habría perecido de no haberlo protegido la mano del Eterno frente a los ángeles. Entonces el Eterno apareció en la nube.
 

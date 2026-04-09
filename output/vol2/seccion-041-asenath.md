@@ -1,4 +1,4 @@
-# ASENATH
+# Asnat
 
 El Eterno otorga a cada hombre la esposa que merece, y así Asenat era digna de ser la compañera de Yosef el piadoso. Su padre era Potifar, uno de los magnates del faraón, que se contaba entre los más distinguidos de todos ellos por su sabiduría, su riqueza y su rango. Su hija era esbelta como Sará, hermosa como Rivká y radiante en su apariencia como Rajel. Nobles y príncipes pretendieron su mano cuando ella contaba dieciocho años de edad. Incluso el sucesor designado del faraón, su hijo primogénito, la reclamó en matrimonio, pero su padre se negó a complacer su deseo, pues no la consideraba esposa apropiada para quien estaba destinado a sentarse en el trono. La hija del rey moabita, insistió, era un enlace más adecuado para él. Pero Asenat rechazó toda propuesta de matrimonio y evitó todo trato con hombres. En compañía de siete doncellas nacidas el mismo día que ella, vivía retirada en un magnífico palacio contiguo al de sus padres.
 

@@ -1,4 +1,4 @@
-# CASTING THE LOTS
+# El sorteo de las suertes
 
 El odio de Hamán, dirigido al principio únicamente contra Mordejai, fue creciendo hasta abarcar a los colegas de Mordejai, a todos los sabios, a quienes buscó destruir, y no satisfecho siquiera con esto, tramó la aniquilación de todo el pueblo de Mordejai: los judíos.
 

@@ -1,4 +1,4 @@
-# THE CURSE OF DRUNKENNESS
+# La maldición de la embriaguez
 
 Noaj perdió su epíteto de «el piadoso» cuando comenzó a ocuparse del cultivo de la vid. Se convirtió en «hombre de la tierra», y aquel primer intento de producir vino trajo consigo al primer bebedor desmedido, al primero en proferir maldiciones contra sus allegados y al primero en instaurar la esclavitud. Todo sucedió de la siguiente manera. Noaj halló la vid que Adam había llevado consigo del Paraíso cuando fue expulsado de él. Probó las uvas que pendían de ella y, hallándolas sabrosas, resolvió plantar la vid y cultivarla. Ese mismo día en que la plantó, dio fruto; la puso en el lagar, extrajo el jugo, lo bebió, se embriagó y fue deshonrado: todo en un solo día. Su asistente en la labor de cultivar la vid fue Satán, que se había presentado en el preciso instante en que Noaj se hallaba plantando el esqueje encontrado. Satán le preguntó: «¿Qué es lo que plantas aquí?»
 

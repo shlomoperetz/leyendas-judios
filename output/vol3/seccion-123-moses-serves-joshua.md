@@ -1,4 +1,4 @@
-# MOSES SERVES JOSHUA
+# Moshé sirve a Yehoshúa
 
 Desde el primer día de Shevat hasta el sexto de Adar, la víspera de su muerte, fue y sirvió a Yehoshúa de la mañana a la noche, como un discípulo a su maestro. Aquellos treinta y seis días durante los cuales Moshé sirvió a su antiguo discípulo se correspondían con el mismo número de años en que Yehoshúa lo había servido a él.
 

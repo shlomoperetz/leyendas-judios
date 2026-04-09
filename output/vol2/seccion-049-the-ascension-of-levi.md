@@ -1,4 +1,4 @@
-# THE ASCENSION OF LEVI
+# La ascensión de Leví
 
 Cuando le fue revelado a Leví que estaba próximo a morir, reunió a todos sus hijos en torno a sí para relatarles la historia de su vida, y también les profetizó lo que ellos habrían de hacer y cuanto les acontecería hasta el día del juicio. Y habló así: «Cuando apacentábamos los rebaños en Abel-Mejolá, el espíritu de entendimiento del Eterno descendió sobre mí, y contemplé a toda la humanidad, cómo corrompían sus caminos, y cómo la injusticia levantaba muros para sí misma, y la impiedad se sentaba entronizada sobre las torres. Y caí presa de aflicción por las generaciones de los hombres, y oré al Eterno para que me salvara. El sueño me envolvió, y contemplé una montaña altísima, y he aquí que los cielos se abrieron, y un ángel del Eterno se dirigió a mí y dijo: "¡Leví, entra!"
 

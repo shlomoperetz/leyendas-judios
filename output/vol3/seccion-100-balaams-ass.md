@@ -1,4 +1,4 @@
-# BALAAM'S ASS
+# La asna de Bilam
 
 Bilam apenas podía esperar a que llegara la mañana, regocijándose no menos que los mensajeros de Balak por el consentimiento del Eterno a su viaje hacia Balak, y aún albergando la esperanza de lograr traer la desgracia sobre Israel. En su premura por partir, él mismo ensilló su asna, aunque no le faltaban sirvientes, ante lo cual dijo el Eterno: «¡Oh, villano! Su antepasado Avraham se te adelantó, pues también él se levantó temprano por la mañana y ensilló en persona su asno para conducir a Itzjak al sacrificio, en cumplimiento del mandato que había recibido.»
 

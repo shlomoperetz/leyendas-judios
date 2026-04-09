@@ -1,4 +1,4 @@
-# MOSES MARRIES ZIPPORAH
+# Moshé desposa a Tziporá
 
 Una de las siete doncellas que Moshé vio junto al pozo atrajo especialmente su atención por su conducta recatada, y le hizo una propuesta de matrimonio. Pero Tziporá lo rechazó, diciendo: «Mi padre tiene un árbol en su jardín con el cual pone a prueba a todo hombre que expresa el deseo de desposar a alguna de sus hijas, y tan pronto como el pretendiente toca el árbol, este lo devora.»
 

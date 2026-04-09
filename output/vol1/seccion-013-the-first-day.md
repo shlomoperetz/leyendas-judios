@@ -1,4 +1,4 @@
-# THE FIRST DAY
+# El primer día
 
 El primer día de la creación, el Eterno produjo diez cosas: los cielos y la tierra, Tohu y Bohu, la luz y la oscuridad, el viento y el agua, la duración del día y la duración de la noche.
 

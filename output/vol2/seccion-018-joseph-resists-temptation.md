@@ -1,4 +1,4 @@
-# JOSEPH RESISTS TEMPTATION
+# Yosef resiste la tentación
 
 Viendo que no podía alcanzar su propósito ni con ruegos ni con lágrimas, Zuleika recurrió finalmente a la fuerza cuando juzgó que había llegado la ocasión propicia. No tuvo que esperar mucho. Cuando el Nilo desbordó sus riberas y, conforme a la costumbre anual de los egipcios, todos acudieron al río —hombres y mujeres, pueblo y príncipes, acompañados de música—, Zuleika permaneció en casa con el pretexto de hallarse enferma. Esta era la oportunidad largamente aguardada, pensó. Se levantó y subió a la sala de estado, y se vistió con ropas principescas. Se colocó piedras preciosas sobre la cabeza, ónice engastado en plata y oro, embelleció su rostro y su cuerpo con toda suerte de afeites propios de la purificación de las mujeres, perfumó la sala y toda la casa con casia e incienso, esparció mirra y áloe por doquier, y después se sentó a la entrada de la sala, en el vestíbulo que conducía a la casa, por donde Yosef había de pasar para dirigirse a sus labores.
 

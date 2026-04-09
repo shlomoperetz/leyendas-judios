@@ -1,4 +1,4 @@
-# DAVID'S PIETY AND HIS SIN
+# La piedad de David y su pecado
 
 Ni sus grandes hazañas guerreras ni su notable buena fortuna apartaron a David de sus costumbres piadosas, ni alteraron en modo alguno su forma de vida. Incluso después de convertirse en rey, seguía sentándose a los pies de sus maestros, Irá el jairita y Mefibóset. A este último sometía siempre sus decisiones en cuestiones religiosas, para asegurarse de que estuvieran conforme a la ley. Todo el tiempo libre que sus deberes reales le concedían lo dedicaba al estudio y la oración. Se contentaba con «sesenta respiraciones» de sueño. A medianoche, las cuerdas de su arpa —fabricadas con las tripas del carnero que Avraham sacrificó en el monte Moriá— comenzaban a vibrar. El sonido que emitían despertaba a David, y él se levantaba de inmediato para consagrarse al estudio de la Torá.
 

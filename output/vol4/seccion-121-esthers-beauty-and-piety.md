@@ -1,4 +1,4 @@
-# ESTHER'S BEAUTY AND PIETY
+# La belleza y la piedad de Ester
 
 El nacimiento de Ester causó la muerte de su madre. Su padre había fallecido poco tiempo antes, de modo que quedó enteramente huérfana. Mordejai y su esposa se interesaron por la pobre criatura. Su esposa se convirtió en nodriza de la niña, y él mismo no vaciló, cuando fue menester, en prestarle servicios que habitualmente solo realizan las mujeres. (66)
 

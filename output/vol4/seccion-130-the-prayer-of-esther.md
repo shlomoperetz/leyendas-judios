@@ -1,4 +1,4 @@
-# THE PRAYER OF ESTHER
+# La plegaria de Ester
 
 Tras un ayuno de tres días, Ester se levantó de la tierra y el polvo, e hizo los preparativos para presentarse ante el rey. Se vistió con un ropaje de seda, bordado en oro de Ofir y engalanado con diamantes y perlas que le habían enviado de África; una corona de oro ceñía su cabeza, y en sus pies calzaba sandalias de oro.
 

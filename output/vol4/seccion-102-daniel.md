@@ -1,4 +1,4 @@
-# DANIEL
+# Daniel
 
 El miembro más distinguido de la Diáspora babilónica fue Daniel. Aunque no era profeta, nadie lo superaba en sabiduría, piedad y buenas obras. Su firme adhesión al judaísmo la demostró desde su temprana juventud, cuando, siendo paje en la corte real, rehusó participar del pan, el vino y el aceite de los gentiles, aun cuando la ley no prohibía su consumo. En general, su posición prominente en la corte se mantuvo a costa de no pocas penalidades, pues tanto él como sus compañeros —Jananiá, Mishael y Azariá— eran envidiados por sus distinciones por numerosos enemigos que buscaban tramar su perdición.
 

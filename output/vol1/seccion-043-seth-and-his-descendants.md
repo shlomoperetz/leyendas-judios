@@ -1,4 +1,4 @@
-# SETH AND HIS DESCENDANTS
+# Set y sus descendientes
 
 Las exhortaciones de las esposas de Lémej surtieron efecto en Adam. Tras una separación de ciento treinta años, regresó junto a Javá, y el amor que ahora le profesaba era con mucho más intenso que el de antaño. Ella moraba en sus pensamientos aun cuando no estuviera presente ante él en cuerpo. El fruto de su reencuentro fue Shet, quien estaba destinado a ser el ancestro del Mashíaj.
 

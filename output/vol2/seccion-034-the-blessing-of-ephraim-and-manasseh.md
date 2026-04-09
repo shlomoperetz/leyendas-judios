@@ -1,4 +1,4 @@
-# THE BLESSING OF EPHRAIM AND MANASSEH
+# La bendición de Efraím y Menashé
 
 Todos los años que Yaakov residió en Egipto, Asenat, la esposa de Yosef, fue su enfermera constante. Cuando vio que su fin se aproximaba, habló a Yosef: «He oído decir que quien recibe la bendición de un hombre justo es como si hubiera sido bendecido por la Shejiná. Trae, pues, aquí a tus hijos, para que Yaakov les otorgue su bendición.»
 

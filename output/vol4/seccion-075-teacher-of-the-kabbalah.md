@@ -1,4 +1,4 @@
-# TEACHER OF THE KABBALAH
+# Maestro de la Cabalá
 
 Los frecuentes encuentros entre Elías y los maestros de la ley en la época talmúdica revestían tan solo un interés personal. Sobre el desarrollo de la Torá no ejercieron influencia alguna. Su relación con la ciencia mística fue de índole muy diferente. Puede afirmarse con certeza que lo que Moshé fue para la Torá, Elías lo fue para la Cábala.
 

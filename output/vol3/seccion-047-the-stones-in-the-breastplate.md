@@ -1,4 +1,4 @@
-# THE STONES IN THE BREASTPLATE
+# Las piedras en el pectoral
 
 Las doce piedras diferían no solo en color, sino también en ciertas cualidades peculiares de cada una, y tanto la cualidad como el color guardaban especial referencia con la tribu cuyo nombre portaban. La piedra de Reuvén era el rubí, que posee la propiedad, cuando es rallado por una mujer y probado por ella, de favorecer la concepción, pues fue Reuvén quien halló las mandrágoras que inducen la preñez.
 

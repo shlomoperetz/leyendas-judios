@@ -1,4 +1,4 @@
-# THE TORAH OFFERED TO ISRAEL
+# La Torá ofrecida a Israel
 
 El segundo día del tercer mes, Moshé recibió palabra del Eterno para que se encaminara al monte Sinaí, pues sin esta convocatoria directa no habría acudido allí. En esta ocasión, como en todas las veces en que el Eterno deseaba hablar con Moshé, lo llamó dos veces por su nombre, y después de que él respondiera «Aquí estoy», siguió la revelación del Eterno. Cuando Moshé fue llevado ante el Eterno en una nube —que estaba siempre dispuesta a transportarlo hacia el Eterno y a devolverlo luego entre los hombres—, el Eterno le dijo: «Ve y da a conocer a las mujeres de Israel los principios del judaísmo, y procura con palabras amables persuadirlas de aceptar la Torá; pero expón el contenido completo de la Torá a los varones, y habla con ellos en términos solemnes acerca de ella.»
 

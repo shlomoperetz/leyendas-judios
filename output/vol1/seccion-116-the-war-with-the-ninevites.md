@@ -1,4 +1,4 @@
-# THE WAR WITH THE NINEVITES
+# La guerra con los ninivitas
 
 La destrucción de Shejem a manos de Shimón y Leví aterrorizó a todos los pueblos paganos de los alrededores. Si dos hijos de Yaakov habían logrado arruinar una ciudad tan grande como Shejem, argüían, ¿qué no serían capaces de hacer Yaakov y todos sus hijos actuando juntos? Yaakov, entretanto, abandonó Shejem sin que nadie se lo impidiese, y con todas sus posesiones se puso en camino para dirigirse a donde estaba su padre Itzjak. Mas tras ocho días de marcha se topó con un poderoso ejército que había sido despachado desde Nínive para imponer tributo al mundo entero y someterlo. Al llegar a las cercanías de Shejem, aquel ejército se enteró de lo que la ciudad había padecido a manos de los hijos de Yaakov, y la furia se apoderó de los hombres, quienes resolvieron hacer la guerra contra Yaakov.
 
