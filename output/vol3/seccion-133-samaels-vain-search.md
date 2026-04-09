@@ -16,7 +16,7 @@ Se dirigió a las nubes de gloria y preguntó: «¿Acaso está Moshé con vosotr
 
 Fue a los cielos y preguntó: «¿Habéis visto al hijo de Amram?» La respuesta fue: «No lo hemos visto desde que, por mandato del Eterno, ascendió hasta nosotros para recibir la Torá».
 
-Se apresuró hacia el Paraíso, pero cuando los ángeles que guardan sus puertas vieron a Samael, lo rechazaron y dijeron: «¡Malvado! ¡Malvado! "Esta es la puerta del Eterno; los justos entrarán por ella"». Samael entonces voló por encima de las puertas del Paraíso y preguntó al Paraíso: «¿Has visto acaso a Moshé?» El Paraíso respondió: «Desde que en compañía de Gabriel me visitó para contemplar la recompensa de los piadosos, no lo he visto».
+Se apresuró hacia el Paraíso, pero cuando los ángeles que guardan sus puertas vieron a Samael, lo rechazaron y dijeron: «¡Malvado! ¡Malvado! "Esta es la puerta del Eterno; los justos entrarán por ella"». Samael entonces voló por encima de las puertas del Paraíso y preguntó al Paraíso: «¿Has visto acaso a Moshé?» El Paraíso respondió: «Desde que en compañía de Gavriel me visitó para contemplar la recompensa de los piadosos, no lo he visto».
 
 Fue al árbol de la vida, pero ya a la distancia de trescientas parasangas, este le gritó: «¡No te acerques a mí!» Por tanto, preguntó desde lejos: «¿Has visto al hijo de Amram?» El árbol respondió: «Desde el día en que vino a mí para cortar un cayado, no lo he visto».
 

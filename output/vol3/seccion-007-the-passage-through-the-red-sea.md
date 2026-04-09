@@ -16,7 +16,7 @@ Entonces el Eterno convocó a todos los miembros de Su familia celestial, y habl
 
 La familia celestial exclamó cuando el Eterno hubo concluido Su alegato: «¡Tienes todo el derecho de ahogarlo en el mar!»
 
-Uzza escuchó su veredicto y dijo: «¡Oh, Eterno de todos los mundos! Sé que mi pueblo merece el castigo que Tú has decretado, pero dígnate obrar con ellos conforme a Tu atributo de misericordia y compadécete de la obra de Tus manos, pues Tu tierna compasión se extiende sobre todas Tus obras.»
+Uzza escuchó su veredicto y dijo: «¡Oh Eterno de todos los mundos! Sé que mi pueblo merece el castigo que Tú has decretado, pero dígnate obrar con ellos conforme a Tu atributo de misericordia y compadécete de la obra de Tus manos, pues Tu tierna compasión se extiende sobre todas Tus obras.»
 
 Casi estuvo el Eterno a punto de ceder ante las súplicas de Uzza, cuando Mijael hizo una señal a Gavriel que lo hizo volar velozmente a Egipto para traer de allí un ladrillo en el cual un niño hebreo había sido usado como argamasa. Sosteniendo aquel objeto acusador en la mano, Gavriel se presentó ante el Eterno y dijo: «¡Oh Señor del mundo! ¿Tendrás compasión de esa nación maldita que ha sacrificado a Tus hijos con tanta crueldad?» Entonces el Eterno se apartó de Su atributo de misericordia y, sentándose en Su trono de justicia, resolvió ahogar a los egipcios en el mar.
 
