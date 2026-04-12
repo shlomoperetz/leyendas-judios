@@ -22,7 +22,7 @@ Avraham: «Así es, y de este modo, oh madre mía, se te da a conocer que existe
 
 La madre: «Hijo mío, ¿hay acaso un dios fuera de Nimrod?».
 
-Avraham: «Sí, madre, el Dios de los cielos y el Dios de la tierra; Él es también el Dios de Nimrod hijo de Canaán. Ve, pues, y lleva este mensaje a Nimrod».
+Avraham: «Sí, madre, el Di-s de los cielos y el Di-s de la tierra; Él es también el Di-s de Nimrod hijo de Canaán. Ve, pues, y lleva este mensaje a Nimrod».
 
 La madre de Avraham regresó a la ciudad y contó a su esposo Téraj cómo había encontrado a su hijo. Téraj, que era príncipe y magnate en la casa del rey, se dirigió al palacio real y se postró ante el rey cayendo sobre su rostro. Era costumbre que quien se postraba ante el rey no podía alzar la cabeza hasta que el rey se lo ordenase. Nimrod dio permiso a Téraj para que se levantara y expusiera su petición. Entonces Téraj relató todo cuanto había acontecido con su esposa y su hijo. Cuando Nimrod escuchó su relato, un temor abyecto se apoderó de él, y preguntó a sus consejeros y príncipes qué hacer con el muchacho. Ellos respondieron: «¡Rey nuestro y dios nuestro! ¿Por qué has de temer a causa de un niño pequeño? Hay miríadas y miríadas de príncipes en tu reino, gobernadores de millares, gobernadores de centenas, gobernadores de cincuentenas y gobernadores de decenas, y superintendentes sin número. Que el menor de los príncipes vaya a buscar al muchacho y lo ponga en prisión». Pero el rey interpuso: «¿Habéis visto alguna vez a un niño de veinte días caminar con sus pies, hablar con su boca y proclamar con su lengua que hay un Eterno en el cielo, que es Uno, y que no hay otro fuera de Él, que ve y no es visto?». Todos los príncipes allí reunidos quedaron horrorizados ante estas palabras.
 

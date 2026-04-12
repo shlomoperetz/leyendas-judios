@@ -1,4 +1,4 @@
-# V. ABRAHAM
+# V. Avraham
 
 Las generaciones perversas
 El nacimiento de Avraham
@@ -15,15 +15,15 @@ Su estancia en Egipto
 El primer faraón
 La guerra de los reyes
 El pacto entre las piezas
-El nacimiento de Ishmael
+El nacimiento de Yishmael
 La visita de los ángeles
 Las ciudades del pecado
 Avraham intercede por los pecadores
 La destrucción de las ciudades pecadoras
 Entre los filisteos
 El nacimiento de Itzjak
-La expulsión de Ishmael
-Las dos esposas de Ishmael
+La expulsión de Yishmael
+Las dos esposas de Yishmael
 El pacto con Avimélek
 Satán acusa a Avraham
 El camino hacia Moriá

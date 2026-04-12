@@ -2,7 +2,7 @@
 
 «Cuando Israel salió de Egipto, la casa de Yaakov de un pueblo de lengua extraña, Yaakov fue Su santuario e Israel Su dominio.» La leyenda judía intenta describir cómo el santuario del Eterno —la religión de Israel— y Su dominio —los comienzos de Israel como nación— surgieron en el tiempo transcurrido entre el Éxodo de Egipto y la entrada en la Tierra Santa.
 
-Moshé es considerado no solo el más grande guía religioso de Israel, sino también su primer líder nacional; es «el más sabio de los sabios, el padre de los profetas», así como «rey en Yeshurún, cuando los jefes del pueblo y las tribus de Israel se congregaron juntos». De ahí su posición única en la leyenda judía: ni Avraham, el amigo del Eterno, ni Shelomó, el más sabio de todos los hombres, ni Eliyahu, el auxiliador en la hora de necesidad, pueden reclamar semejante lugar.
+Moshé es considerado no solo el más grande guía religioso de Israel, sino también su primer líder nacional; es «el más sabio de los sabios, el padre de los profetas», así como «rey en Yeshurún, cuando los jefes del pueblo y las tribus de Israel se congregaron juntos». De ahí su posición única en la leyenda judía: ni Avraham, el amigo del Eterno, ni Shlomó, el más sabio de todos los hombres, ni Eliyahu, el auxiliador en la hora de necesidad, pueden reclamar semejante lugar.
 
 Grandes instituciones religiosas y nacionales como el Shabat, el santuario y muchos otros «mandamientos del Eterno revelados a Moshé» guardan una relación especial con su vida y su obra. La santificación del Shabat se volvió algo plenamente vivo para él a través del milagro del maná, y el primer santuario fue efectivamente erigido por Moshé. Su vida dejó así de ser cosa del pasado y quedó estrechamente entrelazada con la vida cotidiana de la nación.
 

@@ -54,7 +54,7 @@ Entonces la reina tomó la palabra y dijo: «He oído hablar de ti y de tu sabid
 
 18. «Una casa llena de muertos: ningún muerto entró en ella, ni salió de ella ningún vivo.» «Es la historia de Shimshón y los filisteos.»
 
-19. A continuación la reina ordenó que trajeran el tronco aserrado de un cedro, y pidió a Shlomó que señalase en qué extremo habían estado las raíces y en cuál las ramas. Él mandó arrojarlo al agua, y un extremo se hundió mientras el otro flotaba en la superficie. La parte que se hundió era la raíz, y la que permaneció arriba era el extremo de las ramas. Entonces ella le dijo: «Tú superas en sabiduría y en bondad la fama que llegó a mis oídos. ¡Bendito sea tu Dios!»
+19. A continuación la reina ordenó que trajeran el tronco aserrado de un cedro, y pidió a Shlomó que señalase en qué extremo habían estado las raíces y en cuál las ramas. Él mandó arrojarlo al agua, y un extremo se hundió mientras el otro flotaba en la superficie. La parte que se hundió era la raíz, y la que permaneció arriba era el extremo de las ramas. Entonces ella le dijo: «Tú superas en sabiduría y en bondad la fama que llegó a mis oídos. ¡Bendito sea tu Di-s!»
 
 Los tres últimos acertijos que la reina de Shevá planteó a Shlomó fueron los siguientes:
 

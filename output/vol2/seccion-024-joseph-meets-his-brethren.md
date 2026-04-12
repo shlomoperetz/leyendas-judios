@@ -16,7 +16,7 @@ Los hermanos: «Nosotros, tus siervos, somos doce hermanos, hijos de Yaakov, hij
 
 Yosef: «¿Acaso habéis buscado en todos los demás lugares de la tierra, y era Egipto el único país que os quedaba? Y si es verdad que se encuentra en Egipto, ¿qué habría de hacer un hermano vuestro en una casa de mala fama, si en efecto sois descendientes de Avraham, Itzjak y Yaakov?»
 
-Los hermanos: «Supimos que unos ismaelitas robaron a nuestro hermano y lo vendieron como esclavo en Egipto, y como nuestro hermano era de una belleza extraordinaria en forma y rostro, pensamos que podría haber sido vendido para usos ilícitos, y por ello buscamos incluso en las casas de mala fama para encontrarlo.»
+Los hermanos: «Supimos que unos yishmaelitas robaron a nuestro hermano y lo vendieron como esclavo en Egipto, y como nuestro hermano era de una belleza extraordinaria en forma y rostro, pensamos que podría haber sido vendido para usos ilícitos, y por ello buscamos incluso en las casas de mala fama para encontrarlo.»
 
 Yosef: «Habláis palabras engañosas al llamaros hijos de Avraham. ¡Por la vida del Faraón, sois espías, y fuisteis de una casa de mala fama a otra para que nadie os descubriese!»
 

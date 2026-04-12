@@ -1,3 +1,1 @@
-# DE YEHOSHÚA A ESTER
-
-Índice
+# De Yehoshúa a Ester

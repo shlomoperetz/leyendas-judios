@@ -1,8 +1,3 @@
-# LOUIS GINZBERG.
+# Louis Ginzberg
 
-NUEVA YORK, 24 de marzo de 1909
-
-
-
-
-I
+Nueva York, 24 de marzo de 1909.

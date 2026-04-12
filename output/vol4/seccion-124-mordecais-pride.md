@@ -8,7 +8,7 @@ Los oficiales de la corte hablaron y dijeron: «¡Sin embargo, bien sabemos que 
 
 A lo cual Mordejai replicó: «Yo desciendo de Binyamín, que aún no había nacido cuando su padre Yaakov y sus hermanos se echaron a tierra ante Esav. Mi antepasado jamás rindió semejante honor a un mortal. Por eso la porción de tierra de Binyamín en la Tierra de Israel fue privilegiada al contener el Templo. El lugar donde Israel y todos los pueblos de la tierra se postraban ante el Eterno perteneció a aquel que jamás se había postrado ante un hombre mortal. Por tanto, no doblaré mi rodilla ante este pecador de Hamán, ni me echaré a tierra ante él.»
 
-Hamán trató primero de congraciarse con Mordejai mediante una muestra de modestia. Como si no hubiera advertido la conducta de Mordejai, se le acercó y lo saludó con estas palabras: «¡La paz sea contigo, mi señor!» Pero Mordejai le respondió sin rodeos: «No hay paz, dice mi Dios, para los malvados.»
+Hamán trató primero de congraciarse con Mordejai mediante una muestra de modestia. Como si no hubiera advertido la conducta de Mordejai, se le acercó y lo saludó con estas palabras: «¡La paz sea contigo, mi señor!» Pero Mordejai le respondió sin rodeos: «No hay paz, dice mi Di-s, para los malvados.»
 
 El odio que Hamán albergaba contra Mordejai obedecía a más que la enemistad hereditaria entre los descendientes de Shaúl y los de Agag. Ni siquiera la negativa pública de Mordejai a rendirle el homenaje debido bastaba para explicar su virulencia. Mordejai estaba al tanto de cierto incidente en el pasado de Hamán. De haberlo divulgado, la revelación habría resultado sumamente dolorosa para este último. Eso explica la intensidad de su sentimiento.
 

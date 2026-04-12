@@ -1,4 +1,4 @@
-# IV. NOAH
+# IV. Nóaj
 
 El nacimiento de Nóaj
 El castigo de los ángeles caídos

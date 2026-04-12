@@ -1,4 +1,4 @@
-# III. THE TEN GENERATIONS
+# III. Las Diez Generaciones
 
 El nacimiento de Caín
 El fratricidio

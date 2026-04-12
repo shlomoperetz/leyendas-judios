@@ -1,4 +1,4 @@
-# II. ADAM
+# II. Adam
 
 El hombre y el mundo
 Los ángeles y la creación del hombre

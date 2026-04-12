@@ -1,4 +1,4 @@
-# I. THE CREATION OF THE WORLD
+# I. La Creación del Mundo
 
 Las primeras cosas creadas
 El alfabeto

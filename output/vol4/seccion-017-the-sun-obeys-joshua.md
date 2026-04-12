@@ -10,7 +10,7 @@ La batalla tuvo lugar un viernes. Yehoshúa sabía cuánto dolería al pueblo ve
 
 3. Todos los reyes de la tierra Te alabarán, los príncipes del mundo Te cantarán, los hijos de Israel se regocijarán en Tu salvación, cantarán y ensalzarán Tu poder.
 
-4. En Ti, oh Eterno, confiamos; dijimos: Tú eres nuestro Dios, pues Tú fuiste nuestro amparo y nuestra torre fuerte contra nuestros enemigos.
+4. En Ti, oh Eterno, confiamos; dijimos: Tú eres nuestro Di-s, pues Tú fuiste nuestro amparo y nuestra torre fuerte contra nuestros enemigos.
 
 5. A Ti clamamos, y no fuimos avergonzados; en Ti confiamos, y fuimos librados; cuando a Ti clamamos, oíste nuestra voz, libraste nuestras almas de la espada.
 

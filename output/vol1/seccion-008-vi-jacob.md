@@ -1,4 +1,4 @@
-# VI. JACOB
+# VI. Yaakov
 
 El nacimiento de Esav y Yaakov
 El favorito de Avraham

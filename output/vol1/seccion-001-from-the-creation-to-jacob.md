@@ -1,3 +1,1 @@
-# FROM THE CREATION TO JACOB
-
-A
+# De la Creación a Yaakov
