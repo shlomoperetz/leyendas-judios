@@ -1,4 +1,4 @@
-# XI. THE RETURN OF THE CAPTIVITY
+# XI. EL RETORNO DEL CAUTIVERIO
 
 La fiesta de Baltasar
 Daniel bajo los reyes persas

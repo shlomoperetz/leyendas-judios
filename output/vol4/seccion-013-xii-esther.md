@@ -1,4 +1,4 @@
-# XII. ESTHER
+# XII. ESTER
 
 El banquete para los magnates
 Las festividades en Shushán
@@ -20,8 +20,3 @@ Ester intercede
 La noche turbada
 La caída de Hamán
 El edicto del rey
-
-
-
-
-I.

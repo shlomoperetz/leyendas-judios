@@ -1,4 +1,4 @@
-# VIII. ELISHA AND JONAH
+# VIII. ELISHÁ Y YONÁ
 
 Elishá, el discípulo de Eliyahu
 La sunamita

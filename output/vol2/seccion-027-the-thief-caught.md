@@ -16,7 +16,7 @@ Yosef: «Pero si vuestro castigo es por haber vendido a Yosef, ¿por qué ha de 
 
 Yehudá: «Al ladrón y a sus cómplices se los apresa juntos.»
 
-Yosef: «Si fuisteis capaces de informar a vuestro padre acerca de un hermano que no había robado, que no os había traído vergüenza alguna, diciéndole que una fiera lo había despedazado, fácilmente os convenceréis de decir lo mismo acerca de un hermano que ha robado y os ha cubierto de oprobio. Id, pues, y decid a vuestro padre: "La cuerda sigue al cubo del pozo." Mas —prosiguió Yosef, sacudiendo su manto de púrpura—, ¡no quieral Eterno que os acuse a todos de robo! Solo el muchacho que robó la copa para adivinar el paradero de su hermano permanecerá conmigo como mi esclavo; en cuanto a vosotros, subid en paz adonde vuestro padre.»
+Yosef: «Si fuisteis capaces de informar a vuestro padre acerca de un hermano que no había robado, que no os había traído vergüenza alguna, diciéndole que una fiera lo había despedazado, fácilmente os convenceréis de decir lo mismo acerca de un hermano que ha robado y os ha cubierto de oprobio. Id, pues, y decid a vuestro padre: "La cuerda sigue al cubo del pozo." Mas —prosiguió Yosef, sacudiendo su manto de púrpura—, ¡no quiera el Eterno que os acuse a todos de robo! Solo el muchacho que robó la copa para adivinar el paradero de su hermano permanecerá conmigo como mi esclavo; en cuanto a vosotros, subid en paz adonde vuestro padre.»
 
 El espíritu santo proclamó: «¡Mucha paz tienen los que aman Tu Torá!»
 

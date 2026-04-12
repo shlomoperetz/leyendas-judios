@@ -1,3 +1,3 @@
-# FROM JOSHUA TO ESTHER
+# DE YEHOSHÚA A ESTER
 
 Índice

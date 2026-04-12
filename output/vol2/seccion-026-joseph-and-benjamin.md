@@ -12,7 +12,7 @@ La mesa fue dispuesta en tres secciones: una para Yosef, otra para sus hermanos 
 
 Cuando todo estuvo dispuesto y los comensales habían de tomar asiento, Yosef alzó su copa y, fingiendo extraer de ella su conocimiento, dijo: «Yehudá es rey, por tanto ocupe la cabecera de la mesa, y Reuvén, el primogénito, tome el segundo lugar», y así asignó puestos a todos sus hermanos conforme a su dignidad y su edad. Además, sentó juntos a los hermanos nacidos de una misma madre, y cuando llegó a Binyamín, dijo: «Sé que el menor de vosotros no tiene hermano nacido de su propia madre junto a quien pudiera sentarse, y tampoco yo lo tengo, por tanto que ocupe el lugar junto a mí.»
 
-Los hermanos se maravillaron unos con otros de todo aquello. Durante la comida, Yosef tomó su propia ración y se la dio a Binyamín, y su esposa Asenat siguió su ejemplo, y también Efraim y Menashé, de modo que Binyamín tuvo cuatro porciones además de la que había recibido como los demás hijos de Yaakov.
+Los hermanos se maravillaron unos con otros de todo aquello. Durante la comida, Yosef tomó su propia ración y se la dio a Binyamín, y su esposa Asenat siguió su ejemplo, y también Efraím y Menashé, de modo que Binyamín tuvo cuatro porciones además de la que había recibido como los demás hijos de Yaakov.
 
 Se sirvió vino en el banquete, y era la primera vez en veintidós años que Yosef y sus hermanos lo probaban, pues habían llevado vida de nazareos: sus hermanos porque se arrepentían del mal que habían hecho a Yosef, y Yosef porque se afligía por la suerte de su padre.
 

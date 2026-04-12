@@ -1,4 +1,4 @@
-# II. THE JUDGES
+# II. LOS JUECES
 
 El primer juez
 Las campañas de Kenaz

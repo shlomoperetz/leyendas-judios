@@ -1,4 +1,4 @@
-# VII. ELIJAH
+# VII. ELIYAHU
 
 Eliyahu antes de su traslación
 Después de su traslación

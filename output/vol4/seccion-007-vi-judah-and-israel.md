@@ -1,4 +1,4 @@
-# VI. JUDAH AND ISRAEL
+# VI. YEHUDÁ E ISRAEL
 
 La división del reino
 Yeravam

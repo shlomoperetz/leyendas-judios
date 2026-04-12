@@ -2,7 +2,7 @@
 
 El esmero que el Eterno puso en modelar cada detalle del cuerpo del hombre es como nada en comparación con Su solicitud por el alma humana. El alma del hombre fue creada el primer día, pues es el espíritu del Eterno que se cernía sobre la faz de las aguas. De este modo, lejos de ser la última, el hombre es en verdad la primera obra de la creación.
 
-Este espíritu, o, para llamarlo por su nombre habitual, el alma del hombre, posee cinco poderes distintos. En virtud de uno de ellos escapa del cuerpo cada noche, asciende al cielo y trae de allí nueva vida para el hombre.
+Este espíritu, o para llamarlo por su nombre habitual, el alma del hombre, posee cinco poderes distintos. En virtud de uno de ellos escapa del cuerpo cada noche, asciende al cielo y trae de allí nueva vida para el hombre.
 
 Junto con el alma de Adam fueron creadas las almas de todas las generaciones humanas. Se hallan almacenadas en un recinto del séptimo cielo, de donde van siendo extraídas conforme se las necesita para un cuerpo humano tras otro.
 

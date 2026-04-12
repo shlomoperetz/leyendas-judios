@@ -1,3 +1,3 @@
-# FROM JOSEPH TO THE EXODUS
+# De Yosef al Éxodo
 
 Índice

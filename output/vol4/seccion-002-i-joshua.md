@@ -1,4 +1,4 @@
-# I. JOSHUA
+# I. YEHOSHÚA
 
 El siervo de Moshé
 La entrada en la Tierra Prometida

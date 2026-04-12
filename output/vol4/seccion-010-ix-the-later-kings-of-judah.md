@@ -1,4 +1,4 @@
-# IX. THE LATER KINGS OF JUDAH
+# IX. LOS ÚLTIMOS REYES DE YEHUDÁ
 
 Yoash
 Tres grandes profetas

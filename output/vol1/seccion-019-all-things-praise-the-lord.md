@@ -14,6 +14,6 @@ El cántico del buitre es: «Les silbaré y los reuniré, porque los he redimido
 
 Ni los demás animales alaban al Eterno menos que las aves. Hasta las bestias de presa elevan adoración. El león dice: «El Eterno saldrá como un guerrero; como hombre de guerra despertará Su celo; gritará, sí, lanzará un clamor de guerra; prevalecerá poderosamente contra Sus enemigos». Y el zorro exhorta a la justicia con las palabras: «¡Ay de aquel que edifica su casa con injusticia y sus aposentos sin equidad; que se sirve de su prójimo de balde y no le da su jornal!».
 
-Sí, hasta los mudos peces saben proclamar la alabanza de su el Eterno. «La voz del Eterno está sobre las aguas», dicen, «el Dios de gloria truena, el Eterno sobre las muchas aguas»; mientras que la rana exclama: «Bendito sea el nombre de la gloria de Su reino por siempre jamás».
+Sí, hasta los mudos peces saben proclamar la alabanza del Eterno. «La voz del Eterno está sobre las aguas», dicen, «el Dios de gloria truena, el Eterno sobre las muchas aguas»; mientras que la rana exclama: «Bendito sea el nombre de la gloria de Su reino por siempre jamás».
 
 Por despreciables que sean, hasta los reptiles dan alabanza a su Creador. El ratón ensalza al Eterno con estas palabras: «Sin embargo, Tú eres justo en todo cuanto ha venido sobre mí, pues Tú has obrado con verdad, pero yo he obrado con maldad». Y el gato canta: «¡Todo lo que tiene aliento alabe al Eterno! ¡Alabad al Eterno!».

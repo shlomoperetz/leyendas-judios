@@ -1,4 +1,4 @@
-# I. JOSEPH
+# I. Yosef
 
 El hijo predilecto
 Yosef, odiado por sus hermanos

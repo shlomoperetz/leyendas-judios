@@ -1,6 +1,6 @@
 # El tercer día
 
-Hasta ese momento la tierra era una llanura enteramente cubierta de agua. Apenas se dejaron oír las palabras del Eterno —«Reúnanse las aguas en un solo lugar»—, aparecieron montañas por doquier y colinas, y el agua se recogió en las cuencas profundas. Mas el agua se mostró rebelde: resistió la orden de ocupar los lugares bajos y amenazó con anegar la tierra, hasta que el Eterno la forzó a retroceder hacia el mar y ciñó el mar con arena. Ahora, cada vez que el agua se ve tentada a traspasar sus límites, contempla la arena y retrocede.
+Hasta ese momento la tierra era una llanura enteramente cubierta de agua. Apenas se dejaron oír las palabras del Eterno —«Reúnanse las aguas en un solo lugar»—, aparecieron montañas por doquier y colinas, y el agua se recogió en las cuencas profundas. Pero el agua se mostró rebelde: resistió la orden de ocupar los lugares bajos y amenazó con anegar la tierra, hasta que el Eterno la forzó a retroceder hacia el mar y ciñó el mar con arena. Ahora, cada vez que el agua se ve tentada a traspasar sus límites, contempla la arena y retrocede.
 
 Las aguas no hacían sino imitar a su jefe Rahab, el Ángel del Mar, que se rebeló durante la creación del mundo. El Eterno había ordenado a Rahab que absorbiera las aguas, pero este se negó diciendo: «Tengo suficiente». El castigo por su desobediencia fue la muerte. Su cuerpo yace en las profundidades del mar, y las aguas disipan el hedor fétido que de él emana.
 

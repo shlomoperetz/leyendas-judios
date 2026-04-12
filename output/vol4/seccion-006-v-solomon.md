@@ -1,4 +1,4 @@
-# V. SOLOMON
+# V. SHLOMÓ
 
 Shlomó castiga a Yoav
 El matrimonio de Shlomó

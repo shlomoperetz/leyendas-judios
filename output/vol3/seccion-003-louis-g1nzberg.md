@@ -1,3 +1,3 @@
-# LOUIS G1NZBERG.
+# LOUIS GINZBERG
 
-NUEVA YORK, 2 de marzo de 1911
+Nueva York, 2 de marzo de 1911

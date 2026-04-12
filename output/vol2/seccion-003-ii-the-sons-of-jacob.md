@@ -1,4 +1,4 @@
-# II. THE SONS OF JACOB
+# II. Los hijos de Yaakov
 
 Nombres significativos
 El testamento de Reuvén

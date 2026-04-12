@@ -1,3 +1,3 @@
-# FROM THE EXODUS TO THE DEATH OF MOSES
+# Del Éxodo a la muerte de Moshé
 
 A

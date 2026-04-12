@@ -1,4 +1,4 @@
-# III. JOB
+# III. Iyov
 
 Iyov y los Patriarcas
 La riqueza y las obras benéficas de Iyov

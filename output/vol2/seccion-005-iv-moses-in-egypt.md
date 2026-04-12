@@ -1,4 +1,4 @@
-# IV. MOSES IN EGYPT
+# IV. Moshé en Egipto
 
 El comienzo de la esclavitud en Egipto
 La astucia del Faraón
